@@ -8,7 +8,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
-  - Kondratiev wave is the dejobification of jobs,
+  - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
    <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
 - successful appeals are fineable of judges,
@@ -19,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - critique- or harassment-desist, when doublespeak (by jail), or known-made-publicly-unknown, hazard,
 - peacekeeping is free, all-clerical, -else, is duress, or trade of material (pce, cpi, expenses) or assets (non-concurrentable, collateral, compound and general-income, [structures](https://froth.app) - commercial lease, unknown),
 - medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, [uppers](https://teapharmacy.party/drugs) are artifactually a non-matter for driving,
-- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+- [$30t dollars in debt is 1/3 total with mortgage and corporate](https://qr.ae/pGQtZ0), and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank "[general revenue](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17)" welfare, makes progressives to be hypocrites per home/(income/hour), as well,
 
     > price-/quality-/duress-controls [work](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14) **when Supply and Labor-Demand already do not already equate**, for 0y/1x "economic-welfare," or efficiency, gained trade by Supply and Labor-Demand Marginal Utility Indifference as modal of both MRP and MC,
@@ -36,6 +36,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
 - animals can be saved with open ingredient licensure:
   - Transaction-fee-based security depositary receipt requires **NO prescription costs! known-hazard and warn, tort, jail**,
+
+    > flout [immigration](https://vaults.biz/immi) laws because it is good for productivity, [parcels](https://teapharmacy.party/drugs) aren't comparable as to source of fentanyl-based heroine and marijuana dealers, whom customers know what they are getting into,
 - 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 - -GDP/p change-rate is tech advancement,
 - accrual is not reality, but cash accounting is,
@@ -79,7 +81,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > it does matter what they do, more than what we think they do,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
 - immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://qr.ae/pGQKo2)**, and acute version of virial pnemonia, as [bacterial](https://www.pfizer.com/news/articles/viral_vs_bacterial_pneumonia_understanding_the_difference), is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy,
-- [Multiple Sclerosis is 2.5m prevalent](https://qr.ae/pGQHb8) and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand.
+- [Multiple Sclerosis is 2.5m, -presenting](https://qr.ae/pGQHb8), and 19% of population is not actually disabled, just a gerontocracy, investment-bank, monopsony and inefficient laborless-demand.
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
