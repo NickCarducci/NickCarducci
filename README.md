@@ -9,8 +9,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
-  - gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony
-    - free at the point of contact is 1y/0x useless-elastic,
+  - gentrification, anti-rent-seeking, privatization but with consumer surrogacy for regulations upon margins, duress and quality, by warn, tort and jail, without NHS monopsony, that surrenders that,
+    - free at the point of contact is 1y/0x useless-elastic, and,
     - waste comes from 'money' alone, not people perfecting a solution to a problem,
   - torts aren't able to be by good-will neighborhood value, just your last-traded price for the home, or what you could get for it before the insurance life-bid surrendered-freedom of a third party donee-beneficiary, prize,
   - whistleblowers need to be jury, insurance don't show up for appointments is not the same as requiring that contractors do not surrender the freedoms of a third party donee beneficiary,
