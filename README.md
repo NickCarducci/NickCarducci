@@ -4,7 +4,7 @@ I am running for US Senate in (Truncated Production Tax) 2025 and I need your he
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
-* accrual is not reality 
+* accrual is not reality,
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - welfare investment bank 44%, 56% still invoices,
 
