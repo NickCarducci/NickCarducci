@@ -55,6 +55,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - accrual is not reality, but cash accounting is,
   <img align="right" src="https://www.dl.dropboxusercontent.com/s/c00w421499cjyy6/Screen%20Shot%202022-02-23%20at%2012.47.14%20PM.png?dl=0" alt="Newsmax: home prices up 18%/yr+"/>
 
+> experts say rent and homes are up so much because of debt,
+
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
 
