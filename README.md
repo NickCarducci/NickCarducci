@@ -28,7 +28,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 * Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
-> 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
+> permits by minimal viable product duress of quality, or **network/horizontal designation for "operational monopsony" target-margins**, by 12 industry variance,
 * Article 1.8 equal bond-tax means equal in receipt and scope, 
 
   - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under $2k is: 
@@ -36,7 +36,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
-* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty.
+* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, and minimal-viable-product duress.
 
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
