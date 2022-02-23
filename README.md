@@ -66,7 +66,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - assets:liabilities $0:$0,
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
 
-- poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
+- *poverty (inflation/labor) is equality, competition*, and [1800-1913](https://vaults.biz/gdp) 0%/yr+ GDP/p 3%/yr+ population proves **people are economic for people**,
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 - [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity\* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
