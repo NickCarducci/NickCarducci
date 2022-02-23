@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* successful appeals are fineable of judges,
 * all torts are grounded by, either:
   - critiquing comparative innocence, or,
   - Tranquil and voluntary trade, duress within,
