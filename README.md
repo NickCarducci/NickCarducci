@@ -17,7 +17,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - Tranquil and voluntary trade, duress within,
 - to decipher what is right and wrong is not business but 12 industry-variable jury,
 - critique- or harassment-desist, when doublespeak (by jail), or known-made-publicly-unknown, hazard,
-- peacekeeping is free, all clerical else is duress or trade of material,
+- peacekeeping is free, all-clerical, -else, is duress, or trade of material,
 - medicine by non-biomedical CT scan or not, involuntary commitment and physical evidence, or no bail NOR jail, [uppers](https://teapharmacy.party/drugs) are artifactually a non-matter for driving,
 - $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages, in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
   - $829.5b/yr Medicare 19% "disabled" 44% investment bank "[general revenue](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17)" welfare, makes progressives to be hypocrites per home/(income/hour), as well,
