@@ -29,7 +29,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 - -GDP/p change-rate is tech advancement,
 - accrual is not reality, but cash accounting is,
-  ![alt text](https://www.dl.dropboxusercontent.com/s/c00w421499cjyy6/Screen%20Shot%202022-02-23%20at%2012.47.14%20PM.png?dl=0 "Newsmax: home prices up 18%/yr+")
+  <p align="center">![alt text](https://www.dl.dropboxusercontent.com/s/c00w421499cjyy6/Screen%20Shot%202022-02-23%20at%2012.47.14%20PM.png?dl=0 "Newsmax: home prices up 18%/yr+")</p>
 
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
