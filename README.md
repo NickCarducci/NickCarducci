@@ -37,7 +37,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
-* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, and minimal-viable-product duress.
+* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
+* convict intrantet authentication login.gov has been malfeasant and cause of 216/day missing children forever (FBI,2015).
 
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
