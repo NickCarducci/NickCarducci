@@ -3,6 +3,8 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+Cash advance to TBT in spite
+
 "What will you do to keep reputations of those that they walked in there with.  We will do this again tomorrow," we are almost done.
 
 #### plussing up is monopsony, [trust-breaking hypocrisy](https://qr.ae/pGQ9LT) - whistleblowers are the ones with new information, yet judges dismiss them and coast along tranching appeals out of exhaustion and deliberate obstructions of already delinquent 19% 'disabled' investment bank,
