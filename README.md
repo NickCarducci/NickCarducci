@@ -3,7 +3,9 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
-* non-rollover-insurance is anti-competitive,
+* non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
+* animals can be saved with open ingredient licensure:
+  - Transaction-fee-based security depositary receipt requires NO prescription costs!
 * 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 * -GDP/p change-rate is tech advancement,
 * accrual is not reality, but cash accounting is,
@@ -20,8 +22,6 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 * Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
-* animals can be saved with open ingredient licensure:
-  - Transaction-fee-based security depositary receipt requires NO prescription costs!
 * Article 1.8 equal bond-tax means equal in receipt and scope, 
 
   - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under $2k is: 
