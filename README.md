@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* welfare as an investment bank andf 1y/0x elasticity is numerable-damage,
 * education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
 * unknown velocity/yr* currency is admittable as 44 years=m2/chequeing to payday current $170t/$88t/$2t 'good-will' of branded-IP/collateral/land,
 * successful appeals are fineable of judges,
