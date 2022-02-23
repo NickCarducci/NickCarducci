@@ -14,9 +14,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a General Maintenance Unit
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins
 
-please petition & I will write the Efficiency Act in office!
-
-carducci.us
+please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
 🚨alpha-known issues - #
 �💊🛢beta-should be good - #
