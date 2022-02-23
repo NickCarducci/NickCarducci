@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* if you extrapolate the extrapolation, you are no more accurate in mean,
 * processing-science is the palindrome of greenfield-blueocean,
 * -GDP/p tech advancement is the move,
 * you can get royalty before it becomes science,
