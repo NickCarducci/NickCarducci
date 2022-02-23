@@ -2,6 +2,8 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* -GDP/p change-rate is tech advancement,
+* poverty is equality, competition, and 1800-1913 GDP/p 3%/yr+ population proves **people are economic for people**,
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 * accrual is not reality,
