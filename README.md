@@ -4,7 +4,7 @@ I am running for US Senate in (Truncated Production Tax) 2025 and I need your he
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * non-rollover-insurance is anti-competitive,
 * 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
-* accrual is not reality,
+* cash accounting trumps accrual as to reality,
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
 
