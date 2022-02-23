@@ -5,10 +5,12 @@ If you are a New Jersey voter who agrees that
 * invoices are theft,
 * amortize accrual to reality 
   - capital loss deflation (cash/debt)*income every year back,
-  - welfare investment bank 44%, 56% still invoices,1 Obamacare/price-controls are pennywise cheaper than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home.
+  - welfare investment bank 44%, 56% still invoices,
+    >Obamacare/price-controls are pennywise cheaper than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home.
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
-  -  
+  -  assets:liabilities $0:$0, 
+    >efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA)
 
 please petition & I will write the Efficiency Act in office!
 
