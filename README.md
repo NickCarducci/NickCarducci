@@ -42,7 +42,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 - invoices are theft,
 - implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
-- GDP/yr is velocity* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
+- [GDP/yr](https://fred.stlouisfed.org/graph/?g=Mnex) is velocity* of m2 'good-will' is fraudulent as a fraction of chequeing-velocity/yr,
   > donee-beneficiary-surrendered-freedom receprocation is not 'escalation,'
 - force majeure is implausibly-deniably intended by the 'business'-cycle,
 - unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
