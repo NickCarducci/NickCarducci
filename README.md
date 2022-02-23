@@ -19,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - [$12k/64 debt/cash new per person a year](https://fred.stlouisfed.org/graph/?g=Mntl) means it is better to work for yourself (and your copy),
   - licensure is a fee, -laborless, and actually-free, when:
     - non-expiry duress beyond price [MUI](https://qr.ae/pGQ9ZW) discretion, not a:
-    - **'false-bid-pool,' for no, rollover-, collective-bargain, is waste** and investment bank sleaze, an unmet need because of: 
+    - **'false-bid-pool,' for no, rollover-, collective-bargain, is waste** and investment bank sleaze, an unmet need by damage-getting-problem because of: 
     - laborless-demand on labor-borne-demand, by userers,
 - unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
    <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
