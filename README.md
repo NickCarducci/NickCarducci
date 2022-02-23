@@ -3,7 +3,6 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -64,6 +63,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
+- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x,
 
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID.
