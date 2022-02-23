@@ -3,6 +3,7 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
+- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
@@ -34,7 +35,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
 
-    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, [GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU), productivity, [(income/hour)home](https://fred.stlouisfed.org/graph/?g=M7mh), only because Supply already doesn't equate Labor-Demand, but for:
+    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, **[GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU)**, productivity, [(income/hour)home](https://fred.stlouisfed.org/graph/?g=M7mh), only because Supply already doesn't equate Labor-Demand, but for:
 
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
