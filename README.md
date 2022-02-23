@@ -58,12 +58,12 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > permits by minimal viable product duress of quality, or **network/horizontal designation for "operational monopsony" target-margins**, by 12 industry variance,
 - Article 1.8 equal bond-tax means equal in receipt and scope,
 
-  - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under \$2k is:
+  - exclusive Truncated Production Tax **geohash/mo precinct-spoofable 3% under $2k** is:
 
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
-- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x,
+- Debt does not stop a further invasion, when taxation is equal, just monopsony for 1y/0x, free rider immutable contracts made mutable,
 
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID.
