@@ -2,7 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
-* unknown velocity/yr* currency is admittable as 44 years to payday current $170t/$88t/$2t 'good-will' of branded-IP/collateral/land,
+* unknown velocity/yr* currency is admittable as 44 years=m2/chequeing to payday current $170t/$88t/$2t 'good-will' of branded-IP/collateral/land,
 * successful appeals are fineable of judges,
 * all torts are grounded by, either:
   - critiquing comparative innocence, or,
