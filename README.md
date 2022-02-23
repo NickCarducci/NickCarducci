@@ -78,7 +78,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - Tranquil and voluntary trade means 1/12 industry-vertical max-royalty, minimal-viable-product duress and KYC 2 week public review of executions and trades (Public review by geohash/mo to accounting software and Congress) washable-card number,
   > it does matter what they do, more than what we think they do,
 - convict intrantet authentication login.gov has been malfeasant and cause of [216/day missing children forever](https://www.fbi.gov/file-repository/2020-ncic-missing-person-and-unidentified-person-statistics.pdf/view) (FBI,2015), Motor Vehicle automatic-toll-NFC fee with photoID,
-- immunofluoresent microscopy D614G from ACE2 is **yet to be seen**, and acute version of virial pnemonia bacterial is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy.
+- immunofluoresent microscopy D614G from ACE2 is **[yet to be seen](https://youtu.be/Weqb9KrQ-TU?t=21)**, and acute version of virial pnemonia bacterial is bivariate artifactual-cause, never in biology does a strain become the same by two paths of taxonomy.
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
