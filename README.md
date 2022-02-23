@@ -6,6 +6,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * amortize accrual to reality 
   - capital loss deflation (cash/debt)*income every year back,
   - welfare investment bank 44%, 56% still invoices,
+
     > Obamacare/price-controls are pennywise cheaper than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home.
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
