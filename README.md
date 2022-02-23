@@ -2,8 +2,10 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
 * non-rollover-insurance is anti-competitive,
 * 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
+* -GDP/p change-rate is tech advancement,
 * accrual is not reality, but cash accounting is,
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
@@ -13,7 +15,6 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
-* -GDP/p change-rate is tech advancement,
 * poverty is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
@@ -32,7 +33,6 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations,
 * vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
 
-* [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c).
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
