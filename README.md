@@ -20,13 +20,16 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
 * animals can be saved with open ingredient licensure:
   - Transaction-fee-based security depositary receipt requires NO prescription costs!
-* Article 1.8 equal bond-tax and Tranquil and voluntary trade means equal in receipt and scope, 
+* Article 1.8 equal bond-tax means equal in receipt and scope, 
 
   - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under $2k is: 
 
     - not hypocritical state victimization and criminalization over the Public,
 
-      > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!
+      > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
+* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty,
+* Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations.
+* Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
