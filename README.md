@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am running for US Senate in 2025 and I need your help to get on the ballot!
+I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
