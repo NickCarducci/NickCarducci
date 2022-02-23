@@ -13,7 +13,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
 * non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
 * animals can be saved with open ingredient licensure:
-  - Transaction-fee-based security depositary receipt requires NO prescription costs!
+  - Transaction-fee-based security depositary receipt requires NO prescription costs! known-hazard and warn, tort, jail,
 * 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 * -GDP/p change-rate is tech advancement,
 * accrual is not reality, but cash accounting is,
