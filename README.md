@@ -2,11 +2,8 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
-* 19% is not actually "disabled,"
-* -GDP/p change-rate is tech advancement,
-* poverty is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
-* invoices are theft,
-* implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
+* non-rollover-insurance is anti-competitive,
+* 19% is not actually "disabled," just a scapegoat for homelessness and inability to save by usurer-finance (insurer, lender, landlord),
 * accrual is not reality,
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - [welfare investment bank 44%](https://www.ssa.gov/OACT/TRSUM/2020/tr20summary.pdf#page=17), 56% still invoices,
@@ -16,6 +13,10 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
+* -GDP/p change-rate is tech advancement,
+* poverty is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
+* invoices are theft,
+* implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 * Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
 * animals can be saved with open ingredient licensure:
