@@ -19,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
 * animals can be saved with open ingredient licensure:
   - Transaction-fee-based security depositary receipt requires NO prescription costs!
-* Article 1.8 equal bond-tax and Tranquil and voluntary trade means equal in receipt and scope, not hypocritical state victimization and criminalization over the Public, only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s)! 
+* Article 1.8 equal bond-tax and Tranquil and voluntary trade means equal in receipt and scope, not hypocritical state victimization and criminalization over the Public, only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
