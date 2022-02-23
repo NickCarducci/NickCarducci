@@ -29,9 +29,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
-* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty,
-* communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations,
-* vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
+* Tranquil and voluntary trade means 1/12 industry-vertical max-royalty.
 
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
@@ -44,3 +42,7 @@ please petition [carducci.us/primary](carducci.us/primary) & I will write the Ef
 
 
 #ImplausibleLandlordUse 30under5.us #CreditCounterfeitLaundering 3under2.us #RolloverInsurance squatcommune.com
+
+
+> communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations,
+> vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
