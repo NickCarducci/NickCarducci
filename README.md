@@ -23,7 +23,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
   - exclusive Truncated Production Tax geohash/mo precinct-spoofable 3% under $2k is: 
 
-    - not hypocritical state victimization and criminalization over the Public
+    - not hypocritical state victimization and criminalization over the Public,
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!
 
