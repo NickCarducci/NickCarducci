@@ -7,7 +7,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * processing-science is the palindrome of greenfield-blueocean,
 * -GDP/p tech advancement is the move,
 * you can get royalty before it becomes science,
-* copyable means licensable, for scheduleable-concurrency,
+* copyable means licensable, for **scheduleable-concurrency**,
 * (income/hour)/home is efficiency is omnipotent,
 * gentrification and monopsony is counterproductive,
 * [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
