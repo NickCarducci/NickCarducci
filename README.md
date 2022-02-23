@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* (income/hour)/home is efficiency is omnipotent,
 * gentrification and monopsony is counterproductive,
 * [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
 * non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
@@ -18,7 +19,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
-* poverty is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
+* poverty (inflation/labor) is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 * invoices are theft,
 * implausible use **beyond 5 storefronts and condominiums** is intent-prosecutable,
 * Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
