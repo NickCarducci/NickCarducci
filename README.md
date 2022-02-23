@@ -16,7 +16,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
     > efficient economies make nominal, but not actual, positive balances of trade (Froth.app, U.S. BEA),
-* Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a General Maintenance Unit,
+* Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
 > 12 industry variance permits by minimal viable product duress of quality, or network/horizontal designation for "operational monopsony" target-margins,
 * animals can be saved with open ingredient licensure:
   - Transaction-fee-based security depositary receipt requires NO prescription costs!
