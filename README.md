@@ -28,8 +28,8 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
       > only ever Science, and 501c3 dissolving to the state is not tax deductible, neither are interest payments for [Adjusted Present Value](https://qr.ae/pGjS4s), per diem incarceration, nor homelessnesss-scapegoating usurer-finance (insurer, lender, landlord) for mental-aquity!,
 * Tranquil and voluntary trade means 1/12 industry-vertical max-royalty,
-* Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations.
-* Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?
+* communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations,
+* vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; After the real relation has long been made clear, why retrogress again?
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
