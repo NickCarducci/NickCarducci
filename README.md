@@ -10,7 +10,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - welfare investment bank 44%, 56% still invoices,
 
-    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home.
+    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home, only because Supply already doesn't equate Labor-Demand
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
