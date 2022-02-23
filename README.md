@@ -31,7 +31,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations,
 * vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]; after the real relation has long been made clear, why retrogress again?
 
-* first-part-the-post is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c).
+* [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c).
 
 please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
 
