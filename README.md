@@ -20,7 +20,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - -GDP/p tech advancement is the move,
 - you can get royalty before it becomes science,
 - copyable means licensable, for **scheduleable-concurrency**,
-- (income/hour)/home is efficiency is omnipotent,
+- **(income/hour)/home** is efficiency is omnipotent,
 - gentrification and monopsony is counterproductive,
 - [first-part-the-post](https://nextdoor.com/p/yJhWyXgPTdNG) is more of a winner than [bipartisan minorities](https://www.sfelections.org/results/20101102/data/d10.html?fbclid=IwAR2mqFoOdqmtD5cNykpyJIikfNqr1iUGZ-Xly3qVYSH2SyA71hqNzFTAu1c),
 - non-rollover-insurance is anti-competitive, known-hazards and defendant capacity is extent of warning, torts then jail,
