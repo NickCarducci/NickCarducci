@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* all torts are grounded by wither critiquing comparative innocence, and Tranquil and voluntary trade, duress within,
 * to decipher what is right and wrong is not business but 12 industry-variable jury,
 * if you extrapolate the extrapolation, you are no more accurate in mean,
 * processing-science is the palindrome of greenfield-blueocean,
