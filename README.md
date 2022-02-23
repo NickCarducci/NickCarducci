@@ -48,7 +48,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - unfunded liabilities asking-price is the impetus for asset-prices, not laborless-demand, for:
   > GDP/p 1800-1913 0%/yr+ amongst 3%/yr+ population,
 - hypocrisy is grounds for inditement by comparative innocence,
-- protecting the economy is the priority at the moment, is a war crime,
+- protecting the economy is the priority at the moment, is a war crime, by prohibiting commerce of labor, cornering the market for prices 1y/0x,
 - the collapse and decline of GDP/p is tech advancement, which is economical,
 - vertical-, nor horizonal-, insurance saves cash flow by bundling or not; only concurrentable-, competitive- (labor-borne-demand), rollover is a collective-bargain,
 - Savers' land-deeds are 20% of the U.S.; 11/12 exploration/drilling rights by a [General Maintenance Unit](https://vaults.biz/gmu),
