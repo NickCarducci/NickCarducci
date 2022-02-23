@@ -2,6 +2,7 @@
 
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
+* 19% is not actually "disabled,"
 * -GDP/p change-rate is tech advancement,
 * poverty is equality, competition, and [1800-1913](https://vaults.biz/gdp) GDP/p 3%/yr+ population proves **people are economic for people**,
 * invoices are theft,
@@ -10,7 +11,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   - **reverse amortize** capital loss deflation (cash/debt)\*income every year back,
   - welfare investment bank 44%, 56% still invoices,
 
-    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, [GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU), productivity, (income/hour)home, only because Supply already doesn't equate Labor-Demand, but for:
+    > [Obamacare/price-controls are pennywise, -cheaper](https://www.cbo.gov/sites/default/files/111th-congress-2009-2010/costestimate/amendreconprop.pdf#page=14), than ending insurance investment banks for a pound, of efficiency, [GDP/hour-GDP/p](https://fred.stlouisfed.org/graph/?g=LmzU), productivity, [(income/hour)home](https://fred.stlouisfed.org/graph/?g=M7mh), only because Supply already doesn't equate Labor-Demand, but for:
     - borrower defense (force-majeure intent)
     - donee beneficiary-surrendered-freedom
   -  assets:liabilities $0:$0, 
