@@ -3,14 +3,18 @@
 I am running for US Senate in (Truncated Production Tax) 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 
-- 16-19 employment is too low for equality, babies are not to be chorers for gerontocracy, to be economical,
+- $30t dollars in debt is 1/3 total with mortgage and corporate, and the damages are in the 1y/0x price, make libertarians are hypocrites per GDP/hour-GDP/p,
+  - $829.5b/yr Medicare 19% "disabled" 44% investment bank welfare, makes progressives to be hypocrites per home/(income/hour), as well,
+  - [home-contractor gentrification, homeless] scapegoating for mental-health slander or age-as-disability mal-juris-fides makes the government caste hypocrites for trust-breaking,
+- [16-19 employment is too low for equality](https://qr.ae/pGQnr0), babies are not to be chorers for gerontocracy, to be economical,
 - NJ Consumer Fraud Act is not property, merely sprint of labor and material, budget-, known-hazards-holds, -barred,
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/0x elasticity is numerable-damage,
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - Kondratiev wave is the dejobification of jobs,
-- unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current $170t/$88t/\$2t 'good-will' of branded-IP/collateral/land,
+- unknown velocity/yr\* currency is admittable as 44 years=m2/chequeing to payday current [$170t](https://www.yardeni.com/pub/monetagg.pdf)/$88t/\$2t 'good-will' of branded-IP/collateral/land,
+   <img align="right" src="https://www.dl.dropboxusercontent.com/s/liftjgafrj1fv91/Screen%20Shot%202022-02-23%20at%201.14.51%20PM.png?dl=0" alt="Nick Carducci 2021"/>
 - successful appeals are fineable of judges,
 - all torts are grounded by, either:
   - critiquing comparative innocence, or,
