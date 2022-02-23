@@ -4,8 +4,8 @@ I am running for US Senate in 2025 and I need your help to get on the ballot!
 If you are a New Jersey voter who agrees that ↙️⚪️🏞
 * invoices are theft,
 * implausible use beyond 5 storefronts and condominiums is intent-prosecutable,
-* amortize accrual to reality 
-  - capital loss deflation (cash/debt)*income every year back,
+* accrual is not reality 
+  - capital loss deflation (cash/debt)\*income every year back,
   - welfare investment bank 44%, 56% still invoices,
 
     > Obamacare/price-controls are pennywise cheaper than ending insurance investment banks for a pound, of efficiency, GDP/hour-GDP/p, productivity, (income/hour)home.
