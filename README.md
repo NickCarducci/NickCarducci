@@ -116,7 +116,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
   > [no premature deaths happened](https://www.quora.com/What-could-we-do-to-be-adequately-prepared-for-a-future-new-pandemic/answer/Nick-Carducci), artifact Same artifact per capita as population mean, correlation does not mean causation. Single-year n=2019-20 is not able to suppose mean, to extrapolate an extrapolation is to be no closer to normalcy,
   > Alzheimer's and sewage, nor rotting meat, makes maggots - except well like water - chicken or egg doesn't matter.
 
-please petition [carducci.us/primary](carducci.us/primary) & I will write the Efficiency Act in office!
+please petition [2024nj.com/vote](2024nj.com/vote) & I will write the Efficiency Act in office!
 
 🚨alpha-known issues - #
 
