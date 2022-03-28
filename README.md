@@ -12,7 +12,7 @@ If you are a New Jersey voter who agrees that ↙️⚪️🏞
 - house-win fee is **donee-beneficiary-surrendered-freedom** of bid when the 'game' is life,
 - welfare as an investment bank and 1y/-1x elasticity is numerable-damage,
 
-  > And on elasticity 1y/0x, there is no way around it, you need to use economic welfare of 1/hour-GDP/p to see how useless an elasticity of undefined really is, and that’s all ‘money,’ not chequeing land-deeds, does, as Supply equals Labor-Demand or supply doesn’t equal demand, and then price controls ARE pennywise cheaper than whatever laborless-demand is causing the quality of Marginal Utility Indifference opportunities, lost, 
+  > And on elasticity 1y/-1x, there is no way around it, you need to use economic welfare of 1/hour-GDP/p to see how useless an elasticity of undefined really is, and that’s all ‘money,’ not chequeing land-deeds, does, as Supply equals Labor-Demand or supply doesn’t equal demand, and then price controls ARE pennywise cheaper than whatever laborless-demand is causing the quality of Marginal Utility Indifference opportunities, lost, 
 - education is trade secrets and gerontocracy-version trust-building, monopsony, rent-seeking science,
   - Teachers wish to teach into perpetuity, all jobs are to stop jobs, leisure is uncounted chores, favors, scientific contributions and copy,
   - [Kondratiev wave is the dejobification](https://qr.ae/pGQtJs) of jobs,
