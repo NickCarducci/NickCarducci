@@ -2,6 +2,8 @@
 
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
 
+Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially expiring as a surrendered bid of a third party to the contract (the scope of requirements are a JOKE). [Is scope of requirement estimates not contradictory?](https://www.quora.com/unanswered/Is-scope-of-requirement-estimates-not-contradictory)
+
 # [Is 1/hour-GDP/p the fourth quadrant of marginal Supply and Demand](https://www.quora.com/unanswered/Is-1-hour-GDP-p-the-fourth-quadrant-of-marginal-Supply-and-Demand)?
 
 ### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
