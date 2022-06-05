@@ -32,3 +32,9 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
 
 [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.?](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)
+
+[Will stagflation happen when universal healthcare does?](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)
+
+[Is marijuana use prevalent in accidents causing fatalities? in Nick Carducci for Senate](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)
+
+[Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
