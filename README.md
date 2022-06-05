@@ -26,3 +26,5 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
+
+[Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited?](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)
