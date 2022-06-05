@@ -29,6 +29,8 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
+[Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
+
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
 
 [Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
@@ -38,8 +40,6 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
 [Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
-
-[Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
 
 [Is foreign direct investment or net imports a matter of national security](https://www.quora.com/Is-foreign-direct-investment-or-net-imports-a-matter-of-national-security/answer/Nick-Carducci)?
 
