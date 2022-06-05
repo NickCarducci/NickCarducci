@@ -35,11 +35,13 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
 
-[Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
+[Why does Dr. Maria Ryan think illegal immigrants don't "work hard" relative to older legal immigrants](https://www.quora.com/Why-does-Dr-Maria-Ryan-think-illegal-immigrants-dont-work-hard-relative-to-older-legal-immigrants)?
+
+### [Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
 
 [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
-[Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
+### [Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
 
 [Is foreign direct investment or net imports a matter of national security](https://www.quora.com/Is-foreign-direct-investment-or-net-imports-a-matter-of-national-security/answer/Nick-Carducci)?
 
