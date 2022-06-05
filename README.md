@@ -4,7 +4,7 @@
 
 # [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
 
-### [Is crowding out "paying more on interest than of (service) paying down principal, for defense in bargaining up," as Mick Mulvaney says?](https://markethistory.quora.com/Is-crowding-out-paying-more-on-interest-than-of-service-paying-down-principal-for-defense-in-bargaining-up-as-Mick-1)
+### [Madsen Pirie just said the Laffer Curve is generative of tax receipts is because of deficit the previous year, and otherwise the tax rate has no bearing on the revenue. Is he correct only if gov value added as a share of gross product is no matter](https://www.quora.com/Madsen-Pirie-just-said-the-Laffer-Curve-is-generative-of-tax-receipts-is-because-of-deficit-the-previous-year-and-otherwise-the-tax-rate-has-no-bearing-on-the-revenue-Is-he-correct-only-if-gov-value-added-as-a-share)? - [Is Ricardian economic's 'Crowding Out' regarding defense as a utility reduction by "servicing interest more than paying down principal," as Mick Mulvaney says](https://www.quora.com/Is-Ricardian-economics-Crowding-Out-regarding-defense-as-a-utility-reduction-by-servicing-interest-more-than-paying-down-principal-as-Mick-Mulvaney-says)?
 
 ## [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
 
