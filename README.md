@@ -25,6 +25,8 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 >“Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations. …Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?” “…[what the bourgoisie give is] [never outright](https://marx.quora.com/).”
 
+[Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
+
 #### [If America first candidates are those that are, "now in politics that never gone in before because they want to save our country," who from?](https://www.quora.com/unanswered/If-America-first-candidates-are-those-that-are-now-in-politics-that-never-gone-in-before-because-they-want-to-save-our-country-who-from)
 
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
@@ -32,8 +34,6 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
-
-[Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
 [Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
 
