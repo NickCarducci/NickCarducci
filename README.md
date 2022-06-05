@@ -21,6 +21,8 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 >“Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations. …Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?” “…[what the bourgoisie give is] [never outright](https://marx.quora.com/).”
 
+#### [If America first candidates are those that are, "now in politics that never gone in before because they want to save our country," who from?](https://www.quora.com/unanswered/If-America-first-candidates-are-those-that-are-now-in-politics-that-never-gone-in-before-because-they-want-to-save-our-country-who-from)
+
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
