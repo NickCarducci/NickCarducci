@@ -15,7 +15,7 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 🐿user-tested - 0
 
-#ImplausibleLandlordUse 30under5.us #CreditCounterfeitLaundering 3under2.us #RolloverInsurance squatcommune.com
+[Implausible Use Leases beyond 5 stores](https://www.quora.com/unanswered/Is-Affordable-rental-units-and-Fair-Housing-policy-instead-of-reparations-really-cheaper-for-the-poor-versus-contractors-selling-units-outright-for-input-costs-alone-without-implausible-use-leases-beyond-5-stores)
 
 >“Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations. …Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?” “…[what the bourgoisie give is] never outright (https://marx.quora.com/).”
 
