@@ -29,6 +29,8 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 #### [Who do "America first candidates who never have gone into politics before want to save our country" from](https://www.quora.com/unanswered/Who-do-America-first-candidates-who-never-have-gone-into-politics-before-want-to-save-our-country-from)?
 
+[Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
+
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
 [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
@@ -38,8 +40,6 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Why does Dr. Maria Ryan think illegal immigrants don't "work hard" relative to older legal immigrants](https://www.quora.com/Why-does-Dr-Maria-Ryan-think-illegal-immigrants-dont-work-hard-relative-to-older-legal-immigrants)?
 
 ### [Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
-
-[Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
 ### [Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
 
