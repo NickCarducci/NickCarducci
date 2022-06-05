@@ -27,6 +27,6 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
 
-[Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited?](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)
+[Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
-(Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you?)[https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you]
+[Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
