@@ -29,11 +29,11 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 #### [Who do "America first candidates who never have gone into politics before want to save our country" from](https://www.quora.com/unanswered/Who-do-America-first-candidates-who-never-have-gone-into-politics-before-want-to-save-our-country-from)?
 
-[Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
+## [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
-[Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
+# [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
 
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
 
