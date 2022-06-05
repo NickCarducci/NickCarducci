@@ -30,3 +30,5 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
 [Is it the job of the government insurance to revoke your libido if the gender that you are attracted to keeps rejecting you](https://www.quora.com/unanswered/Is-it-the-job-of-the-government-insurance-to-revoke-your-libido-if-the-gender-that-you-are-attracted-to-keeps-rejecting-you)?
+
+[Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.?](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)
