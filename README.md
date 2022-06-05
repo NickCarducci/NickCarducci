@@ -40,3 +40,7 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
 
 [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
+
+[Is foreign direct investment or net imports a matter of national security](https://www.quora.com/Is-foreign-direct-investment-or-net-imports-a-matter-of-national-security/answer/Nick-Carducci)?
+
+[Nick Carducci's answer to Can you make a profit with net imports](https://secretary.quora.com/Can-you-make-a-profit-with-net-imports-1)? in Secretary
