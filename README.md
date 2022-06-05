@@ -27,7 +27,7 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 [Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
-#### [Who do "America first candidates who never have gone into politics before want to save our country" from?](https://www.quora.com/unanswered/Who-do-America-first-candidates-who-never-have-gone-into-politics-before-want-to-save-our-country-from)?
+#### [Who do "America first candidates who never have gone into politics before want to save our country" from](https://www.quora.com/unanswered/Who-do-America-first-candidates-who-never-have-gone-into-politics-before-want-to-save-our-country-from)?
 
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
