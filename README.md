@@ -2,7 +2,7 @@
 
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
 
-# [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports?](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)
+# [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
 
 ## [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
 
