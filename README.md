@@ -2,6 +2,10 @@
 
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
 
+# [Is 1/hour-GDP/p the fourth quadrant of marginal Supply and Demand](https://www.quora.com/unanswered/Is-1-hour-GDP-p-the-fourth-quadrant-of-marginal-Supply-and-Demand)?
+
+### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
+
 # [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
 
 ### [Madsen Pirie just said the Laffer Curve is generative of tax receipts is because of deficit the previous year, and otherwise the tax rate has no bearing on the revenue. Is he correct only if gov value added as a share of gross product is no matter](https://www.quora.com/Madsen-Pirie-just-said-the-Laffer-Curve-is-generative-of-tax-receipts-is-because-of-deficit-the-previous-year-and-otherwise-the-tax-rate-has-no-bearing-on-the-revenue-Is-he-correct-only-if-gov-value-added-as-a-share)? - [Is Ricardian economic's 'Crowding Out' regarding defense as a utility reduction by "servicing interest more than paying down principal," as Mick Mulvaney says](https://www.quora.com/Is-Ricardian-economics-Crowding-Out-regarding-defense-as-a-utility-reduction-by-servicing-interest-more-than-paying-down-principal-as-Mick-Mulvaney-says)?
