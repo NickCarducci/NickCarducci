@@ -4,13 +4,14 @@
 
 # [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
 
+### [Is crowding out "paying more on interest than of (service) paying down principal, for defense in bargaining up," as Mick Mulvaney says?](https://markethistory.quora.com/Is-crowding-out-paying-more-on-interest-than-of-service-paying-down-principal-for-defense-in-bargaining-up-as-Mick-1)
+
 ## [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
+
+### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
 # [Can 1099 workers use their expenses at the convenience of themselves](https://www.quora.com/Can-1099-workers-use-their-expenses-at-the-convenience-of-themselves)?
 
-[Is crowding out "paying more on interest than of (service) paying down principal, for defense in bargaining up," as Mick Mulvaney says?](https://markethistory.quora.com/Is-crowding-out-paying-more-on-interest-than-of-service-paying-down-principal-for-defense-in-bargaining-up-as-Mick-1)
-
-[Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
 [Professional Proprietors](https://nonpro.quora.com/)hip services are tax-free, so [In-Kind-Income-Tax-Exempt-Employee-Benefits](https://inkindincometaxexemptbenefits.quora.com/) (for bartenders) with [Self Employment Expense Benefits](https://selfemploymentbenefits.quora.com/).
 >Spend money at work (pick up lunch), instead of tax exemptions pay cops less with truncated wholesale tax. Real GDP is just government deficit and employee benefits for employee benefits, but also taxes and all essentials with insurance and student loans, or anything that is in excess of a required utility (1/hour). [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports?](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)
