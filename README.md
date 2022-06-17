@@ -79,4 +79,4 @@ period/hour-value=4th quadrant, 3rd political
 
 /Can-I-claim-unemployment-for-inflation-to-ward-my-cost-of-living-or-deflation-for-less-wages-available
 
-50% rent+FCSU*1.2=insurance (povertyJK). despo* nat/city, why?
+50% rent+FCSU*1.2=insurance (povertyJK). despo* nat/city, why? [youtube](https://youtube.com/nickcarduccinj)
