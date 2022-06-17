@@ -56,3 +56,27 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Is foreign direct investment or net imports a matter of national security](https://www.quora.com/Is-foreign-direct-investment-or-net-imports-a-matter-of-national-security/answer/Nick-Carducci)?
 
 [Nick Carducci's answer to Can you make a profit with net imports](https://secretary.quora.com/Can-you-make-a-profit-with-net-imports-1)? in Secretary
+
+Corpus Linguistics stan.
+timeclock unlock inventor
+when did having emotions become something you need to medicate monoamine with your closed source shortening pharmacology?
+
+rolloverinsurance.quora.com
+youtube.com/results?search_query=random+kissing+girls
+quora.com/Why-are-homework-and-attendance-important-even-if-the-professor-is-wrong
+contractLaw
+house homeless - don't medicate involuntary commitment - wouldn't happen without insurance.
+The government gentrification free rider mutable and aba racket without truncated production tax, forcing labor to be price takers and value givers, bad utility. Severe depression increases 
+
+tax exemptions for incorporating?
+login.gov convict/spam intranet
+(cash/debt)*income
+Asylum in Portugal
+65%/occupy qz
+
+period/hour-value=4th quadrant, 3rd political
+86' future job price taking
+
+/Can-I-claim-unemployment-for-inflation-to-ward-my-cost-of-living-or-deflation-for-less-wages-available
+
+50% rent+FCSU*1.2=insurance (povertyJK). despo* nat/city, why?
