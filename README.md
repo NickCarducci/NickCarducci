@@ -30,9 +30,9 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
 
-#### [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
-
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://youtu.be/A2kSh0A8Ad0)
+
+#### [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
 ## [Can we replace the FDA with open source and login.gov 'Know Your Customer'](https://www.quora.com/Can-we-replace-the-FDA-with-open-source-and-login-gov-Know-Your-Customer)?
 
@@ -40,9 +40,9 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Why can I not shorten my monoamine uptake without prescriptions](https://www.quora.com/unanswered/Why-can-I-not-shorten-my-monoamine-uptake-without-prescriptions)?
 
-## [Where should I claim asylum now that everyone knows I smoke weed and am therefore unarmed in America](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)?
-
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/qc3m49gnvu4zkvf/Screen%20Shot%202022-06-19%20at%201.31.43%20PM.png?dl=0" alt="Rita Cosby on Mexican cartels, open source and substitutive supply (ending)">](https://youtu.be/eXh8iN9xIRI)
+
+## [Where should I claim asylum now that everyone knows I smoke weed and am therefore unarmed in America](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)?
 
 ### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
 
