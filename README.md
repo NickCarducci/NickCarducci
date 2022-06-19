@@ -14,7 +14,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
-![Future of Voting In New Jersey with Steve Trevalise of nj 101.5]({image-url})]({https://youtu.be/A2kSh0A8Ad0} "Future of Voting In New Jersey with Steve Trevalise of nj 101.5")
+![Future of Voting In New Jersey with Steve Trevalise of nj 101.5]({image-url})]({https://www.youtube.com/embed/A2kSh0A8Ad0} "Future of Voting In New Jersey with Steve Trevalise of nj 101.5") [link](https://youtu.be/A2kSh0A8Ad0)
 
 # [Is 1/hour-GDP/p the fourth quadrant of marginal Supply and Demand](https://www.quora.com/unanswered/Is-1-hour-GDP-p-the-fourth-quadrant-of-marginal-Supply-and-Demand)?
 
