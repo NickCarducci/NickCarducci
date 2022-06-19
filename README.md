@@ -109,17 +109,23 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 [Nick Carducci's answer to Can you make a profit with net imports](https://secretary.quora.com/Can-you-make-a-profit-with-net-imports-1)? in Secretary
 
 Corpus Linguistics stan.
-timeclock unlock inventor
-when did having emotions become something you need to medicate monoamine with your closed source shortening pharmacology?
 
+timeclock unlock inventor
+
+[when did having emotions](https://www.quora.com/unanswered/Why-is-anxiety-a-medical-condition-instead-of-a-human-one) become something you need to medicate monoamine with your closed source shortening pharmacology?
 
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/2ffbcghpwoz5der/weed%20and%20mental%20health%20stats.png?dl=0" alt="weed and mental health stats">](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)
 
-rolloverinsurance.quora.com
+[rolloverinsurance.quora.com](https://rolloverinsurance.quora.com)
+
 youtube.com/results?search_query=random+kissing+girls
+
 quora.com/Why-are-homework-and-attendance-important-even-if-the-professor-is-wrong
+
 contractLaw
-house homeless - don't medicate involuntary commitment - wouldn't happen without insurance.
+
+house homeless - don't [medicate involuntary commitment](https://insurancebenefits.quora.com/Who-deals-with-homelessness-in-NYC-1) - wouldn't happen [without insurance](https://www.quora.com/unanswered/Would-there-be-involuntary-commitment-without-insurance).
+
 The government gentrification free rider mutable and aba racket without truncated production tax, forcing labor to be price takers and value givers, bad utility. Severe depression increases 
 
 tax exemptions for incorporating?
