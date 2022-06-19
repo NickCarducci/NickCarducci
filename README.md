@@ -44,6 +44,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
+#### [Would cops not be relatively richer by truncated wholesale tax and/or banning tax exemptions](https://www.quora.com/unanswered/Would-cops-not-be-relatively-richer-by-truncated-wholesale-tax-and-or-banning-tax-exemptions)?
+
 # [Can 1099 workers use their expenses at the convenience of themselves](https://www.quora.com/Can-1099-workers-use-their-expenses-at-the-convenience-of-themselves)?
 
 ### [Why is "at the convenience of the employer" for tax exemptions not a monopoly](https://www.quora.com/unanswered/Why-is-at-the-convenience-of-the-employer-for-tax-exemptions-not-a-monopoly)?
