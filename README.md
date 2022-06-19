@@ -4,6 +4,8 @@ Trump, "[just wanted to detest the election, he didn’t want to riot.
 He knows how hard drives work, he was President.
 He knows he would need a distributed database to prove otherwise](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)."
 
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/ip5vamu279fioyo/trump%20occupy%20.jpeg?dl=0">](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)
+
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
 
 ### [Do you have to pay sales tax under $10k per customer](https://scopebook.quora.com/Do-you-have-to-pay-sales-tax-under-10k-per-customer-1)? in Scopebook
