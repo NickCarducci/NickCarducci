@@ -100,6 +100,8 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 > Gas Price Gouging Prevention Act has no quantitative amount of margin, and the the bill is a pay to play scheme, they won’t even jail such “unconscionable”-subjective-transgressors. Knowing the bipartisans if it were to pass the margins would be moved to [subsidiary input costs](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#banking-is-free-rider-mutable-and-price-takingvalue-giving-for).
 
+## [Should Congress raise taxes to fight inflation](https://www.quora.com/Should-Congress-raise-taxes-to-fight-inflation/answer/Nick-Carducci)?
+
 #### Anyway, [those leases](https://biologicaldiversity.org/w/news/press-releases/new-data-biden-slays-trumps-first-year-drilling-permitting-by-34-2022-01-21/) should go towards dollar owners (3%APR return/$) and keystone is 1%.
 
 # Relief as in price-taking/value-giving to corporations? Bipartisans will be just as quick to not let prices fall and at the same time not allow estimates to novate.
