@@ -96,6 +96,10 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 # [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
 
+[Why are conservatives so emphatic about the Keystone XL pipeline when oil inflation is double while only being 1/100 or 1% of consumption](https://www.quora.com/Why-are-conservatives-so-emphatic-about-the-Keystone-XL-pipeline-when-oil-inflation-is-double-while-only-being-1-100-or-1-of-consumption)?
+
+[Nick Carducci's answer to Why is a trivariate first past the post majority less significant than ranked choice voting](https://epiology.quora.com/Why-is-a-trivariate-first-past-the-post-majority-less-significant-than-ranked-choice-voting-1)? in epiology
+
 ### [Why is the (new decennial) bipartisan strategy to claim covid deaths were unexpected when an equal number of family members were affected as were not](https://www.quora.com/unanswered/Why-is-the-new-decennial-bipartisan-strategy-to-claim-covid-deaths-were-unexpected-when-an-equal-number-of-family-members-were-affected-as-were-not)?
 
 [Why does Dr. Maria Ryan think illegal immigrants don't "work hard" relative to older legal immigrants](https://www.quora.com/Why-does-Dr-Maria-Ryan-think-illegal-immigrants-dont-work-hard-relative-to-older-legal-immigrants)?
