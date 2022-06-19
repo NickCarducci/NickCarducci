@@ -112,6 +112,9 @@ Corpus Linguistics stan.
 timeclock unlock inventor
 when did having emotions become something you need to medicate monoamine with your closed source shortening pharmacology?
 
+
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/2ffbcghpwoz5der/weed%20and%20mental%20health%20stats.png?dl=0" alt="weed and mental health stats">](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)
+
 rolloverinsurance.quora.com
 youtube.com/results?search_query=random+kissing+girls
 quora.com/Why-are-homework-and-attendance-important-even-if-the-professor-is-wrong
