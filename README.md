@@ -59,7 +59,9 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 >certain damages in price increases, regardless if it be inflation or employee benefits and government deficit (real GDP). To make banking without price-taking/value-giving, Bank Transaction Fees like Truncated Wholesale Tax and Max Royalties.
 
 1. Selling at a discount qualifier requires reporting threshold for lifetime exemption yet the latter can be just for business sales and regular business under a name would permit that income tax, too! Only if selling more than $15k of goods or services per customer… Work as much as you want and don’t be penalized for it (in geohash/month reporting). Business account no more than dividing sales tax amongst shareholder reporting thresholds per customer: truncated wholesale tax.
-2. Industry-specific payday reverse amortize cash:debt for annual income so we all paid what we would have without third party donee beneficiary surrendered bid.
+2. Industry-specific payday reverse amortize cash:debt for annual income so we all paid what we would have without third party donee beneficiary surrendered bid. https://www.quora.com/Public-banks-remain-important-across-the-world-despite-waves-of-privatization-says-IMF-Deputy-Managing-Director-Bo-Li-What-do-you-think-of-public-vs-private-banks/answer/Nick-Carducci
+
+[Nick Carducci's answer to Is it possible to have an economic system where inflation, deflation, and stock market volatility are not a factor in most people's ability to access goods/services](https://occupywallst.quora.com/Is-it-possible-to-have-an-economic-system-where-inflation-deflation-and-stock-market-volatility-are-not-a-factor-in-mo-1)? in Occupy Wall St
 
 #### [Would cops not be relatively richer by truncated wholesale tax and/or banning tax exemptions](https://www.quora.com/unanswered/Would-cops-not-be-relatively-richer-by-truncated-wholesale-tax-and-or-banning-tax-exemptions)?
 
