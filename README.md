@@ -137,6 +137,6 @@ Asylum in Portugal
 period/hour-value=4th quadrant, 3rd political
 86' future job price taking
 
-/Can-I-claim-unemployment-for-inflation-to-ward-my-cost-of-living-or-deflation-for-less-wages-available
+[Can I claim unemployment for inflation to ward my cost of living or deflation for less wages available](https://www.quora.com/unanswered/Can-I-claim-unemployment-for-inflation-to-ward-my-cost-of-living-or-deflation-for-less-wages-available)?
 
 50% rent+FCSU*1.2=insurance (povertyJK). despo* nat/city, why? [my 'youtube' channel](https://youtube.com/nickcarduccinj)
