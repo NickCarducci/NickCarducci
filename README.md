@@ -32,7 +32,11 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://www.youtube.com/embed/A2kSh0A8Ad0)
 
-# [Is 1/hour-GDP/p the fourth quadrant of marginal Supply and Demand](https://www.quora.com/unanswered/Is-1-hour-GDP-p-the-fourth-quadrant-of-marginal-Supply-and-Demand)?
+## [Can we replace the FDA with open source and login.gov 'Know Your Customer'](https://www.quora.com/Can-we-replace-the-FDA-with-open-source-and-login-gov-Know-Your-Customer)?
+
+# [Can we call the DEA "pharmacops"](https://www.quora.com/unanswered/Can-we-call-the-DEA-pharmacops)?
+
+### [Why can I not shorten my monoamine uptake without prescriptions](https://www.quora.com/unanswered/Why-can-I-not-shorten-my-monoamine-uptake-without-prescriptions)?
 
 ### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
 
