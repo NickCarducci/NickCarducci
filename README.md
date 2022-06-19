@@ -10,7 +10,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
 
-[Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)
+[Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
 
 [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
