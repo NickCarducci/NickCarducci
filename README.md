@@ -6,13 +6,17 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
 
+### [Do you have to pay sales tax under $10k per customer](https://scopebook.quora.com/Do-you-have-to-pay-sales-tax-under-10k-per-customer-1)? in Scopebook
+
+## [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
+
 Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expiring](https://rolloverinsurance.quora.com) as a [surrendered bid of a third party to the contract (the scope of requirements are a JOKE)](https://scopebook.quora.com/Is-scope-of-requirement-estimates-not-contradictory-1). [Is scope of requirement estimates not contradictory](https://www.quora.com/unanswered/Is-scope-of-requirement-estimates-not-contradictory)?
 
-[Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
+#### [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
 
-[Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
+### [Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
 
-[Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
+#### [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://www.youtube.com/embed/A2kSh0A8Ad0)
 
