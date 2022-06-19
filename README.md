@@ -18,7 +18,7 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 ## Nick Carducci's answer to [In the monetarist theory equation 𝑀𝑉=𝑃𝑄, which pairs of two variables have positive correlations between each other, and which pairs of two variables have negative correlations](https://www.quora.com/In-the-monetarist-theory-equation-MV-PQ-which-pairs-of-two-variables-have-positive-correlations-between-each-other-and-which-pairs-of-two-variables-have-negative-correlations/answer/Nick-Carducci)?
 
-[<img align="left" src="https://www.dl.dropboxusercontent.com/s/wr0ika43een702w/Screen%20Shot%202022-06-19%20at%201.41.39%20PM.png?dl=0">](https://youtu.be/kOy3I2ceTRA)
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/wr0ika43een702w/Screen%20Shot%202022-06-19%20at%201.41.39%20PM.png?dl=0" alt="Dick Morris Consumer Affairs New Jersey Consumer Fraud Act Change Orders from every Laborer Majeure">](https://youtu.be/kOy3I2ceTRA)
 
 Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expiring](https://rolloverinsurance.quora.com) as a [surrendered bid of a third party to the contract (the scope of requirements are a JOKE)](https://scopebook.quora.com/Is-scope-of-requirement-estimates-not-contradictory-1). [Is scope of requirement estimates not contradictory](https://www.quora.com/unanswered/Is-scope-of-requirement-estimates-not-contradictory)?
 
