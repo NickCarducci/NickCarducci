@@ -54,7 +54,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
-# [Banking is free rider](https://sewageisamatterofdomesticviolence.quora.com/) mutable and [price-taking](https://realecon.quora.com/Does-insurance-cause-inflation-1)/value-giving for
+# Banking [is free rider](https://sewageisamatterofdomesticviolence.quora.com/) mutable and [price-taking](https://realecon.quora.com/Does-insurance-cause-inflation-1)/value-giving for
 
 > [certain damages](https://www.quora.com/Public-banks-remain-important-across-the-world-despite-waves-of-privatization-says-IMF-Deputy-Managing-Director-Bo-Li-What-do-you-think-of-public-vs-private-banks/answer/Nick-Carducci) in price increases, regardless if it be inflation or employee benefits and government deficit (real GDP). To make banking without price-taking/value-giving, Bank Transaction Fees like Truncated Wholesale Tax and Max Royalties. 
 
