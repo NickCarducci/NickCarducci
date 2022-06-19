@@ -46,6 +46,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 # [Can 1099 workers use their expenses at the convenience of themselves](https://www.quora.com/Can-1099-workers-use-their-expenses-at-the-convenience-of-themselves)?
 
+### [Why is "at the convenience of the employer" for tax exemptions not a monopoly](https://www.quora.com/unanswered/Why-is-at-the-convenience-of-the-employer-for-tax-exemptions-not-a-monopoly)?
+
 [Professional Proprietors](https://nonpro.quora.com/)hip services are tax-free, so [In-Kind-Income-Tax-Exempt-Employee-Benefits](https://inkindincometaxexemptbenefits.quora.com/) (for bartenders) with [Self Employment Expense Benefits](https://selfemploymentbenefits.quora.com/).
 >Spend money at work (pick up lunch), instead of tax exemptions pay cops less with truncated wholesale tax. Real GDP is just government deficit and employee benefits for employee benefits, but also taxes and all essentials with insurance and student loans, or anything that is in excess of a required utility (1/hour). [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports?](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)
 >Real GDP to GDP is more than inflation, a relative value accounting, GDP-CPI bundle (out of pocket, bea, bls)
