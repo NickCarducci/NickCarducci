@@ -12,6 +12,8 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 ## [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
 
+# [Why is productivity to macroeconomics the second quadrant in microeconomics](https://www.quora.com/unanswered/Why-is-productivity-to-macroeconomics-the-second-quadrant-in-microeconomics)?
+
 Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expiring](https://rolloverinsurance.quora.com) as a [surrendered bid of a third party to the contract (the scope of requirements are a JOKE)](https://scopebook.quora.com/Is-scope-of-requirement-estimates-not-contradictory-1). [Is scope of requirement estimates not contradictory](https://www.quora.com/unanswered/Is-scope-of-requirement-estimates-not-contradictory)?
 
 #### [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
