@@ -54,6 +54,13 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
+# Banking is free rider mutable and price-taking/value-giving for
+
+>certain damages in price increases, regardless if it be inflation or employee benefits and government deficit (real GDP). To make banking without price-taking/value-giving, Bank Transaction Fees like Truncated Wholesale Tax and Max Royalties.
+
+1. Selling at a discount qualifier requires reporting threshold for lifetime exemption yet the latter can be just for business sales and regular business under a name would permit that income tax, too! Only if selling more than $15k of goods or services per customer… Work as much as you want and don’t be penalized for it (in geohash/month reporting). Business account no more than dividing sales tax amongst shareholder reporting thresholds per customer: truncated wholesale tax.
+2. Industry-specific payday reverse amortize cash:debt for annual income so we all paid what we would have without third party donee beneficiary surrendered bid.
+
 #### [Would cops not be relatively richer by truncated wholesale tax and/or banning tax exemptions](https://www.quora.com/unanswered/Would-cops-not-be-relatively-richer-by-truncated-wholesale-tax-and-or-banning-tax-exemptions)?
 
 # [Can 1099 workers use their expenses at the convenience of themselves](https://www.quora.com/Can-1099-workers-use-their-expenses-at-the-convenience-of-themselves)?
