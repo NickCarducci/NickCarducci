@@ -14,6 +14,8 @@ Borrowing and lending is also stealing by [Third party donee beneficiary](https:
 
 #### [Why are product developers subject to third party donee beneficiary law but lenders aren't](https://www.quora.com/unanswered/Why-are-product-developers-subject-to-third-party-donee-beneficiary-law-but-lenders-arent)?
 
+### [Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
+
 Trump, "[just wanted to detest the election, he didn’t want to riot.
 He knows how hard drives work, he was President.
 He knows he would need a distributed database to prove otherwise](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)."
@@ -43,8 +45,6 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 ## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
 
 ### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
-
-### [Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://youtu.be/A2kSh0A8Ad0)
 
