@@ -84,6 +84,10 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expiring](https://rolloverinsurance.quora.com) as a [surrendered bid of a third party to the contract (the scope of requirements are a JOKE)](https://scopebook.quora.com/Is-scope-of-requirement-estimates-not-contradictory-1). [Is scope of requirement estimates not contradictory](https://www.quora.com/unanswered/Is-scope-of-requirement-estimates-not-contradictory)?
 
+### [What rationality is there to make camp, medical, tuition, retreats, and lunch employee benefits tax exempt](https://www.quora.com/unanswered/What-rationality-is-there-to-make-camp-medical-tuition-retreats-and-lunch-employee-benefits-tax-exempt)?
+
+## [Can I spend my delivery tip revenue like professionals and corporations do on employee benefits](https://www.quora.com/unanswered/Can-I-spend-my-delivery-tip-revenue-like-professionals-and-corporations-do-on-employee-benefits)?
+
 #### [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
 
 <hr>
