@@ -119,6 +119,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Nick Carducci's answer to Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
 
+## [Should each student loans’ corresponding bond also be cancelled or at least reverse amortized by multiplying the annual cash/debt ratio by our income so that we all paid what we would have without third party donee beneficiary surrendered freedoms](https://www.quora.com/unanswered/Should-each-student-loans-corresponding-bond-also-be-cancelled-or-at-least-reverse-amortized-by-multiplying-the-annual-cash-debt-ratio-by-our-income-so-that-we-all-paid-what-we-would-have-without-third-party-donee)?
+
 [Would showing the volume on bid or ask make it too easy for retail traders](https://www.quora.com/Would-showing-the-volume-on-bid-or-ask-make-it-too-easy-for-retail-traders)?
 
 #### [Why is the use of recreational drugs a mental illness](https://www.quora.com/unanswered/Why-is-the-use-of-recreational-drugs-a-mental-illness)?
