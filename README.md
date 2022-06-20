@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+[Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
+
 [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
 [Can you legally waste someone's time by abstractions and administrative abuse](https://www.quora.com/unanswered/Can-you-legally-waste-someones-time-by-abstractions-and-administrative-abuse)?
