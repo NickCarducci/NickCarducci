@@ -94,7 +94,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
 
-#### [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
+#### [Why is the use of recreational drugs a mental illness](https://www.quora.com/unanswered/Why-is-the-use-of-recreational-drugs-a-mental-illness)?
 
 # [Can we call the DEA "pharmacops"](https://www.quora.com/unanswered/Can-we-call-the-DEA-pharmacops)?
 
@@ -107,6 +107,10 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 ## [Where should I claim asylum now that everyone knows I smoke weed and am therefore unarmed in America](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)?
 
 # [Has any criminally insane person ever hidden their motive for such a plea bargain](https://www.quora.com/unanswered/Has-any-criminally-insane-person-ever-hidden-their-motive-for-such-a-plea-bargain)?
+
+#### [Why is anxiety a medical condition instead of a human one](https://www.quora.com/unanswered/Why-is-anxiety-a-medical-condition-instead-of-a-human-one)?
+
+### [Does medical marijuana use disqualify you of gun permits](https://www.quora.com/Does-medical-marijuana-use-disqualify-you-of-gun-permits)?
 
 ## [Did you know that recidivist homicides matches prevalence of mental issues amongst the general population as well as amongst murderers](https://www.quora.com/unanswered/Did-you-know-that-recidivist-homicides-matches-prevalence-of-mental-issues-amongst-the-general-population-as-well-as-amongst-murderers)?
 
