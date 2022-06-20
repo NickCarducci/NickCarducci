@@ -4,7 +4,7 @@
 
 ##### [Should the UT, NM, and WY leases to the treasury fracking permits by Biden be disbursed to checkable deposit accounts](https://www.quora.com/unanswered/Should-the-UT-NM-and-WY-leases-to-the-treasury-fracking-permits-by-Biden-be-disbursed-to-checkable-deposit-accounts)?
 
-# [Is implausible use leases not slavery](https://www.quora.com/unanswered/Is-implausible-use-leases-not-slavery)? [Is economic development loaned](https://www.quora.com/unanswered/Is-economic-development-loaned)?
+# [Is implausible use leases not slavery](https://www.quora.com/unanswered/Is-implausible-use-leases-not-slavery)? [Is economic development loaned](https://www.quora.com/unanswered/Is-economic-development-loaned)? [Why, when labor is variable-part, are structures, equipment (commercial-durables), and IP, called fixed costs? Is it because economic development is loaned](https://www.quora.com/Why-when-labor-is-variable-part-are-structures-equipment-commercial-durables-and-IP-called-fixed-costs-Is-it-because-economic-development-is-loaned)?
 
 #### [Administrative work accounts for 40%](https://www.linkedin.com/posts/profgalloway_the-cost-of-maintaining-trust-accounts-for-activity-6944714725968556032-R7_0). Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus). [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
