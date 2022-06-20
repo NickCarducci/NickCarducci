@@ -83,6 +83,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 #### [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
 
 <hr>
+
 [Should lending, estimates, escrow, warranty, and insurance be held to industry-specific payday loans to abide by EFT, third party donee beneficiary surrendered freedoms (i.e. EULA), & Corpus Linguistics division of labor economic efficiency](https://www.quora.com/unanswered/Should-lending-estimates-escrow-warranty-and-insurance-be-held-to-industry-specific-payday-loans-to-abide-by-EFT-third-party-donee-beneficiary-surrendered-freedoms-i-e-EULA-Corpus-Linguistics-division-of-labor)?
 
 ## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
