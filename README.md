@@ -184,7 +184,7 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 # [Was covid expected](https://www.quora.com/Was-covid-expected/answer/Nick-Carducci)?
 
-If population level only goes back to [1937 vitals](https://humanharvest.info), and 1905 only has death rates, the 5 year cohorts can hide the end-(and-beginning-heavy lifetime expectation.
+If population level only goes back to [1937 vitals](https://humanharvest.info), and 1905 only has death rates, the 5 year cohorts can hide the end-(and-beginning)-heavy lifetime expectation.
 
 ## [Nick Carducci's answer to Why is a trivariate first past the post majority less significant than ranked choice voting](https://epiology.quora.com/Why-is-a-trivariate-first-past-the-post-majority-less-significant-than-ranked-choice-voting-1)? in epiology
 
