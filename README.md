@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+[Can you legally waste someone's time by abstractions and administrative abuse](https://www.quora.com/unanswered/Can-you-legally-waste-someones-time-by-abstractions-and-administrative-abuse)?
+
 Trump, "[just wanted to detest the election, he didn’t want to riot.
 He knows how hard drives work, he was President.
 He knows he would need a distributed database to prove otherwise](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)."
