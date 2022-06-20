@@ -54,6 +54,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 # [Can we call the DEA "pharmacops"](https://www.quora.com/unanswered/Can-we-call-the-DEA-pharmacops)?
 
+## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
+
 ### [Why can I not shorten my monoamine uptake without prescriptions](https://www.quora.com/unanswered/Why-can-I-not-shorten-my-monoamine-uptake-without-prescriptions)?
 
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/qc3m49gnvu4zkvf/Screen%20Shot%202022-06-19%20at%201.31.43%20PM.png?dl=0" alt="Rita Cosby on Mexican cartels, open source and substitutive supply (ending)">](https://youtu.be/eXh8iN9xIRI)
