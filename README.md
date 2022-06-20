@@ -108,11 +108,15 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
 
+# [Is labor responsible for overhead](https://www.quora.com/unanswered/Is-labor-responsible-for-overhead)?
+
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://youtu.be/A2kSh0A8Ad0)
 
 #### [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
 ## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
+
+[Would showing the volume on bid or ask make it too easy for retail traders](https://www.quora.com/Would-showing-the-volume-on-bid-or-ask-make-it-too-easy-for-retail-traders)?
 
 #### [Why is the use of recreational drugs a mental illness](https://www.quora.com/unanswered/Why-is-the-use-of-recreational-drugs-a-mental-illness)?
 
