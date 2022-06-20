@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)? Administrative work accounts for 40%. Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus).
+## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
+#### Administrative work accounts for 40%. Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus).
 
 [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
