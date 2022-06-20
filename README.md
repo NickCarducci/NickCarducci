@@ -50,11 +50,11 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 #### [Why are business accounts more important than personal accounts to Grover Norquist except in to ward those very corporate market concentrations for less competition and economic utility](https://www.quora.com/unanswered/Why-are-business-accounts-more-important-than-personal-accounts-to-Grover-Norquist-except-in-to-ward-those-very-corporate-market-concentrations-for-less-competition-and-economic-utility)?
 
-## [Can we replace the FDA with open source and login.gov 'Know Your Customer'](https://www.quora.com/Can-we-replace-the-FDA-with-open-source-and-login-gov-Know-Your-Customer)?
+## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
 
 # [Can we call the DEA "pharmacops"](https://www.quora.com/unanswered/Can-we-call-the-DEA-pharmacops)?
 
-## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
+## [Can we replace the FDA with open source and login.gov 'Know Your Customer'](https://www.quora.com/Can-we-replace-the-FDA-with-open-source-and-login-gov-Know-Your-Customer)?
 
 ### [Why can I not shorten my monoamine uptake without prescriptions](https://www.quora.com/unanswered/Why-can-I-not-shorten-my-monoamine-uptake-without-prescriptions)?
 
