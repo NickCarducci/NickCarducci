@@ -36,6 +36,10 @@
 
 [Is collective action "government" antitrust-communism as Stephen Moore says or is it remediation that has no limitations for non-respondents to otherwise a class action, -suit](https://www.quora.com/unanswered/Is-collective-action-government-antitrust-communism-as-Stephen-Moore-says-or-is-it-remediation-that-has-no-limitations-for-non-respondents-to-otherwise-a-class-action-suit)?
 
+[Can businesses choose who can be served without repercussions, if administrative abuse were notwithstanding](https://www.quora.com/unanswered/Can-businesses-choose-who-can-be-served-without-repercussions-if-administrative-abuse-were-notwithstanding)?
+
+[Can labor choose what ideas they promote unless it comes down to who they serve on a subjective basis or they work in a factory](https://www.quora.com/unanswered/Can-labor-choose-what-ideas-they-promote-unless-it-comes-down-to-who-they-serve-on-a-subjective-basis-or-they-work-in-a-factory)?
+
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/1v9k4u20zwqfcni/inequality.png?dl=0">](https://fredaccount.stlouisfed.org/dashboard/79987)
 
 ## [Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
