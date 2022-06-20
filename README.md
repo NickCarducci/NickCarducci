@@ -8,6 +8,8 @@
 
 ## [Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
 
+### [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
+
 [Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
 
 Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints. [Why is raising rates and cancelling debt instead of reverse amortizing cash:debt by annual income, as a matter of third party donee beneficiary surrendered freedom to bid, by counterfeit contractors, as with end user license agreements](https://www.quora.com/unanswered/Why-do-you-like-to-raise-rates-and-cancel-debt-instead-of-reverse-amortize-as-a-matter-of-third-party-donee-beneficiary-surrendered-freedom-to-bid-by-counterfeit-contractors-as-with-end-user-license-agreements)?
@@ -119,8 +121,6 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 [Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
 #### [Who do "America first candidates who never have gone into politics before want to save our country" from](https://www.quora.com/unanswered/Who-do-America-first-candidates-who-never-have-gone-into-politics-before-want-to-save-our-country-from)?
-
-## [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
 Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility Economics](https://utilityeconomics.quora.com), [Census](https://census.quora.com)
 
