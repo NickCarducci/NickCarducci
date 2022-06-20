@@ -20,6 +20,8 @@
 
 [Should judges be fined for successful appeals to prevent administrative abuse](https://www.quora.com/unanswered/Should-judges-be-fined-for-successful-appeals-to-prevent-administrative-abuse)?
 
+[Is collective action "government" antitrust-communism as Stephen Moore says or is it remediation that has no limitations for non-respondents to otherwise a class action, -suit](https://www.quora.com/unanswered/Is-collective-action-government-antitrust-communism-as-Stephen-Moore-says-or-is-it-remediation-that-has-no-limitations-for-non-respondents-to-otherwise-a-class-action-suit)?
+
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/1v9k4u20zwqfcni/inequality.png?dl=0">](https://fredaccount.stlouisfed.org/dashboard/79987)
 
 ## [Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
