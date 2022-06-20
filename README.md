@@ -117,6 +117,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
 
+### [Nick Carducci's answer to Is marijuana use prevalent in accidents causing fatalities](https://nickcarducciforsenate.quora.com/Is-marijuana-use-prevalent-in-accidents-causing-fatalities-1)? in Nick Carducci for Senate
+
 [Would showing the volume on bid or ask make it too easy for retail traders](https://www.quora.com/Would-showing-the-volume-on-bid-or-ask-make-it-too-easy-for-retail-traders)?
 
 #### [Why is the use of recreational drugs a mental illness](https://www.quora.com/unanswered/Why-is-the-use-of-recreational-drugs-a-mental-illness)?
