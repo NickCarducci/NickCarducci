@@ -8,6 +8,10 @@
 
 #### [Why, when labor is variable-part, are structures, equipment (commercial-durables), and IP, called fixed costs? Is it because economic development is loaned](https://www.quora.com/Why-when-labor-is-variable-part-are-structures-equipment-commercial-durables-and-IP-called-fixed-costs-Is-it-because-economic-development-is-loaned)? [Is promising another person's cash illegal but for the attainment of the appraisal or is the government at fault for paying lenders with time and savings or increasing checkable deposits](https://www.quora.com/unanswered/Is-promising-another-persons-cash-illegal-but-for-the-attainment-of-the-appraisal-or-is-the-government-at-fault-for-paying-lenders-with-time-and-savings-or-increasing-checkable-deposits)?
 
+## [Is third party donee beneficiary surrendered bids upon extension but for a specific industry and an outset for a payday loan, or before foreclosure notwithstanding certain harm of time loitering on collateral, illegal or not](https://www.quora.com/unanswered/Is-third-party-donee-beneficiary-surrendered-bids-upon-extension-but-for-a-specific-industry-and-an-outset-for-a-payday-loan-or-before-foreclosure-notwithstanding-certain-harm-of-time-loitering-on-collateral-illegal)?
+
+# [Should refinancing be banned](https://www.quora.com/Should-refinancing-be-banned)?
+
 #### [Administrative work accounts for 40%](https://www.linkedin.com/posts/profgalloway_the-cost-of-maintaining-trust-accounts-for-activity-6944714725968556032-R7_0). Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus). [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
 ## [Why are conservatives so emphatic about the Keystone XL pipeline when oil inflation is double while only being 1/100 or 1% of consumption](https://www.quora.com/Why-are-conservatives-so-emphatic-about-the-Keystone-XL-pipeline-when-oil-inflation-is-double-while-only-being-1-100-or-1-of-consumption)?
