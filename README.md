@@ -42,7 +42,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 #### [Should lending, estimates, escrow, warranty, and insurance be held to industry-specific payday loans to abide by EFT, third party donee beneficiary surrendered freedoms (i.e. EULA), & Corpus Linguistics division of labor economic efficiency](https://www.quora.com/unanswered/Should-lending-estimates-escrow-warranty-and-insurance-be-held-to-industry-specific-payday-loans-to-abide-by-EFT-third-party-donee-beneficiary-surrendered-freedoms-i-e-EULA-Corpus-Linguistics-division-of-labor)?
 
-## [Why are product developers subject to third party donee beneficiary law but lenders aren't](https://www.quora.com/unanswered/Why-are-product-developers-subject-to-third-party-donee-beneficiary-law-but-lenders-arent)?
+## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
 
 ### [Can you get out of taxes for a vacation for business travel in-kind exempt income by saying your home life is poor at the moment](https://www.quora.com/unanswered/Can-you-get-out-of-taxes-for-a-vacation-for-business-travel-in-kind-exempt-income-by-saying-your-home-life-is-poor-at-the-moment)?
 
