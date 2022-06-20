@@ -14,7 +14,7 @@
 
 [I'm a socialist. I believe John Catsimitidis, a grocer that deals in wholesale transactions, should pay for our police wholly. After saying socialists were originally anti-finance to Dick Morris, he said, "drop dead socialists." What should I do](https://www.quora.com/Im-a-socialist-I-believe-John-Catsimitidis-a-grocer-that-deals-in-wholesale-transactions-should-pay-for-our-police-wholly-After-saying-socialists-were-originally-anti-finance-to-Dick-Morris-he-said-drop-dead)?
 
-[What is the weakest critique of communism](https://marx.quora.com/What-is-the-weakest-critique-of-communism-1)?
+[Nick Carducci's answer to What is the weakest critique of communism](https://marx.quora.com/What-is-the-weakest-critique-of-communism-1)? in Marx
 
 [Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
 
