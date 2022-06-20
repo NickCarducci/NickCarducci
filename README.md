@@ -10,6 +10,8 @@
 
 # [Why are conservatives against cheap imports](https://www.quora.com/Why-are-conservatives-against-cheap-imports)?
 
+#### [Why does Chad Wolf think outsourcing is inefficient when labor comes here? Does he think outsourcing in general is inefficient/bad for American consumers](https://www.quora.com/unanswered/Why-does-Chad-Wolf-think-outsourcing-is-inefficient-when-labor-comes-here-Does-he-think-outsourcing-in-general-is-inefficient-bad-for-American-consumers)?
+
 ### [Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
 
 ### [Why are jobs valuable in macroeconomics when they are proof of less utility as per microeconomics](https://www.quora.com/unanswered/Why-are-jobs-valuable-in-macroeconomics-when-they-are-proof-of-less-utility-as-per-microeconomics)?
