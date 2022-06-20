@@ -66,7 +66,7 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 ### [Do you have to pay sales tax under $10k per customer](https://scopebook.quora.com/Do-you-have-to-pay-sales-tax-under-10k-per-customer-1)? in Scopebook
 
-### [Did slavery plantation owners save money on horizontal integration imputed general income, like tax exempt employee benefits as a cost of goods sold, today](https://www.quora.com/unanswered/Did-slavery-plantation-owners-save-money-on-horizontal-integration-imputed-general-income-like-tax-exempt-employee-benefits-as-a-cost-of-goods-sold-today)?
+> [Did slavery plantation owners save money on horizontal integration imputed general income, like tax exempt employee benefits as a cost of goods sold, today](https://www.quora.com/unanswered/Did-slavery-plantation-owners-save-money-on-horizontal-integration-imputed-general-income-like-tax-exempt-employee-benefits-as-a-cost-of-goods-sold-today)?
 
 # [Why is productivity to macroeconomics the second quadrant in microeconomics](https://www.quora.com/unanswered/Why-is-productivity-to-macroeconomics-the-second-quadrant-in-microeconomics)?
 
