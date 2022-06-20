@@ -1,11 +1,11 @@
 ### Hi there 👋
 
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
-#### [Administrative work accounts for 40%](https://www.linkedin.com/posts/profgalloway_the-cost-of-maintaining-trust-accounts-for-activity-6944714725968556032-R7_0). Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus).
+#### [Administrative work accounts for 40%](https://www.linkedin.com/posts/profgalloway_the-cost-of-maintaining-trust-accounts-for-activity-6944714725968556032-R7_0). Can we automate that value down to its marginal utility? Are we talking distributed databases again? Economic relationships like contract software? [Jesus](https://saverparty.xyz/jesus). [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
-[Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
+### [Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
 
-#### [Why are jobs valuable in macroeconomics when they are proof of less utility as per microeconomics](https://www.quora.com/unanswered/Why-are-jobs-valuable-in-macroeconomics-when-they-are-proof-of-less-utility-as-per-microeconomics)?
+### [Why are jobs valuable in macroeconomics when they are proof of less utility as per microeconomics](https://www.quora.com/unanswered/Why-are-jobs-valuable-in-macroeconomics-when-they-are-proof-of-less-utility-as-per-microeconomics)?
 
 [Can you legally waste someone's time by abstractions and administrative abuse](https://www.quora.com/unanswered/Can-you-legally-waste-someones-time-by-abstractions-and-administrative-abuse)?
 
@@ -21,7 +21,9 @@
 
 # [Nick Carducci's answer to What is the weakest critique of communism](https://marx.quora.com/What-is-the-weakest-critique-of-communism-1)? in Marx
 
-### [Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
+### [Is investment required by outsiders to build communities, or can residents build themselves without a lease and with input costs that are constrained to their individual budget constraints](https://www.quora.com/unanswered/Is-investment-required-by-outsiders-to-build-communities-or-can-residents-build-themselves-without-a-lease-and-with-input-costs-that-are-constrained-to-their-individual-budget-constraints)?
+
+## [Nick Carducci's answer to Is communism antitrust](https://marx.quora.com/Is-communism-antitrust-1)? in Marx
 
 Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints. [Why is raising rates and cancelling debt instead of reverse amortizing cash:debt by annual income, as a matter of third party donee beneficiary surrendered freedom to bid, by counterfeit contractors, as with end user license agreements](https://www.quora.com/unanswered/Why-do-you-like-to-raise-rates-and-cancel-debt-instead-of-reverse-amortize-as-a-matter-of-third-party-donee-beneficiary-surrendered-freedom-to-bid-by-counterfeit-contractors-as-with-end-user-license-agreements)?
 
