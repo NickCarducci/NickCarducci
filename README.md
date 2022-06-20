@@ -2,6 +2,8 @@
 
 [Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
 
+#### [Why are jobs valuable in macroeconomics when they are proof of less utility as per microeconomics](https://www.quora.com/unanswered/Why-are-jobs-valuable-in-macroeconomics-when-they-are-proof-of-less-utility-as-per-microeconomics)?
+
 [Can you legally waste someone's time by abstractions and administrative abuse](https://www.quora.com/unanswered/Can-you-legally-waste-someones-time-by-abstractions-and-administrative-abuse)?
 
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/1v9k4u20zwqfcni/inequality.png?dl=0">](https://fredaccount.stlouisfed.org/dashboard/79987)
