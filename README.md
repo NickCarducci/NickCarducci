@@ -52,6 +52,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ## [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
 
+#### [Would modern day gangs trade peacefully if they were only prosecuted insofar as to open source, name, and so on to allow reviews](https://www.quora.com/unanswered/Would-modern-day-gangs-trade-peacefully-if-they-were-only-prosecuted-insofar-as-to-open-source-name-and-so-on-to-allow-reviews)?
+
 # [Can we call the DEA "pharmacops"](https://www.quora.com/unanswered/Can-we-call-the-DEA-pharmacops)?
 
 ## [Can we replace the FDA with open source and login.gov 'Know Your Customer'](https://www.quora.com/Can-we-replace-the-FDA-with-open-source-and-login-gov-Know-Your-Customer)?
@@ -61,6 +63,10 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/qc3m49gnvu4zkvf/Screen%20Shot%202022-06-19%20at%201.31.43%20PM.png?dl=0" alt="Rita Cosby on Mexican cartels, open source and substitutive supply (ending)">](https://youtu.be/eXh8iN9xIRI)
 
 ## [Where should I claim asylum now that everyone knows I smoke weed and am therefore unarmed in America](https://www.quora.com/unanswered/Where-should-I-claim-asylum-now-that-everyone-knows-I-smoke-weed-and-am-therefore-unarmed-in-America)?
+
+# [Has any criminally insane person ever hidden their motive for such a plea bargain](https://www.quora.com/unanswered/Has-any-criminally-insane-person-ever-hidden-their-motive-for-such-a-plea-bargain)?
+
+## [Did you know that recidivist homicides matches prevalence of mental issues amongst the general population as well as amongst murderers](https://www.quora.com/unanswered/Did-you-know-that-recidivist-homicides-matches-prevalence-of-mental-issues-amongst-the-general-population-as-well-as-amongst-murderers)?
 
 ### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
 
