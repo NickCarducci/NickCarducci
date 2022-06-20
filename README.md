@@ -86,6 +86,8 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
 
+#### [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
+
 ### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://youtu.be/A2kSh0A8Ad0)
@@ -118,9 +120,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 # [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
 
-### [Madsen Pirie just said the Laffer Curve is generative of tax receipts is because of deficit the previous year, and otherwise the tax rate has no bearing on the revenue. Is he correct only if gov value added as a share of gross product is no matter](https://www.quora.com/Madsen-Pirie-just-said-the-Laffer-Curve-is-generative-of-tax-receipts-is-because-of-deficit-the-previous-year-and-otherwise-the-tax-rate-has-no-bearing-on-the-revenue-Is-he-correct-only-if-gov-value-added-as-a-share)? - [Is Ricardian economic's 'Crowding Out' regarding defense as a utility reduction by "servicing interest more than paying down principal," as Mick Mulvaney says](https://www.quora.com/Is-Ricardian-economics-Crowding-Out-regarding-defense-as-a-utility-reduction-by-servicing-interest-more-than-paying-down-principal-as-Mick-Mulvaney-says)?
-
-## [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
+> [Madsen Pirie just said the Laffer Curve is generative of tax receipts is because of deficit the previous year, and otherwise the tax rate has no bearing on the revenue. Is he correct only if gov value added as a share of gross product is no matter](https://www.quora.com/Madsen-Pirie-just-said-the-Laffer-Curve-is-generative-of-tax-receipts-is-because-of-deficit-the-previous-year-and-otherwise-the-tax-rate-has-no-bearing-on-the-revenue-Is-he-correct-only-if-gov-value-added-as-a-share)? - [Is Ricardian economic's 'Crowding Out' regarding defense as a utility reduction by "servicing interest more than paying down principal," as Mick Mulvaney says](https://www.quora.com/Is-Ricardian-economics-Crowding-Out-regarding-defense-as-a-utility-reduction-by-servicing-interest-more-than-paying-down-principal-as-Mick-Mulvaney-says)?
 
 ### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)
 
