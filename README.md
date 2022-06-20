@@ -38,7 +38,7 @@
 
 ## [Nick Carducci's answer to Is communism antitrust](https://marx.quora.com/Is-communism-antitrust-1)? in Marx
 
-Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints. [Why is raising rates and cancelling debt instead of reverse amortizing cash:debt by annual income, as a matter of third party donee beneficiary surrendered freedom to bid, by counterfeit contractors, as with end user license agreements](https://www.quora.com/unanswered/Why-do-you-like-to-raise-rates-and-cancel-debt-instead-of-reverse-amortize-as-a-matter-of-third-party-donee-beneficiary-surrendered-freedom-to-bid-by-counterfeit-contractors-as-with-end-user-license-agreements)?
+> Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints. [Why is raising rates and cancelling debt instead of reverse amortizing cash:debt by annual income, as a matter of third party donee beneficiary surrendered freedom to bid, by counterfeit contractors, as with end user license agreements](https://www.quora.com/unanswered/Why-do-you-like-to-raise-rates-and-cancel-debt-instead-of-reverse-amortize-as-a-matter-of-third-party-donee-beneficiary-surrendered-freedom-to-bid-by-counterfeit-contractors-as-with-end-user-license-agreements)?
 
 ## [Why are higher prices good in corporate accounts](https://www.quora.com/unanswered/Why-are-higher-prices-good-in-corporate-accounts)?
 
@@ -142,7 +142,7 @@ essential gift discount. Quarterly personal-profit monthly expense (tax-free, [C
 
 [Is Affordable rental-units and Fair Housing policy instead of reparations really cheaper for the poor versus contractors selling units outright for input costs, alone, without implausible use leases beyond 5 stores and condos per landlord?](https://www.quora.com/unanswered/Is-Affordable-rental-units-and-Fair-Housing-policy-instead-of-reparations-really-cheaper-for-the-poor-versus-contractors-selling-units-outright-for-input-costs-alone-without-implausible-use-leases-beyond-5-stores)
 
->“Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations. …Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?” “…[what the bourgoisie give is] [never outright](https://marx.quora.com/).”
+> “Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations. …Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again?” “…[what the bourgoisie give is] [never outright](https://marx.quora.com/).”
 
 [Are the Republicans liable for the January 6th insurrection lie that magnetic hard drives could be audited](https://www.quora.com/unanswered/Are-the-Republicans-liable-for-the-January-6th-insurrection-lie-that-magnetic-hard-drives-could-be-audited)?
 
@@ -160,7 +160,7 @@ Also blogging at: [Federal Reserve](https://federalreserve.quora.com), [Utility 
 
 #### Anyway, [those leases](https://biologicaldiversity.org/w/news/press-releases/new-data-biden-slays-trumps-first-year-drilling-permitting-by-34-2022-01-21/) should go towards dollar owners (3%APR return/$) and keystone is 1%.
 
-# Relief as in price-taking/value-giving to corporations? Bipartisans will be just as quick to not let prices fall and at the same time not allow estimates to novate.
+# > Relief as in price-taking/value-giving to corporations? Bipartisans will be just as quick to not let prices fall and at the same time not allow estimates to novate.
 
 ## [Nick Carducci's answer to Why is a trivariate first past the post majority less significant than ranked choice voting](https://epiology.quora.com/Why-is-a-trivariate-first-past-the-post-majority-less-significant-than-ranked-choice-voting-1)? in epiology
 
