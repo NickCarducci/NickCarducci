@@ -1,6 +1,10 @@
 ### Hi there 👋
 
+[Why are people upset with lost jobs from deflation](https://www.quora.com/unanswered/Why-are-people-upset-with-lost-jobs-from-deflation)?
+
 [Can you legally waste someone's time by abstractions and administrative abuse](https://www.quora.com/unanswered/Can-you-legally-waste-someones-time-by-abstractions-and-administrative-abuse)?
+
+[Is the x-axis of utility, "sweating," or less hours worked by price](https://www.quora.com/unanswered/Is-the-x-axis-of-utility-sweating-or-less-hours-worked-by-price)?
 
 Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints.
 
