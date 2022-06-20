@@ -16,6 +16,8 @@
 
 > Relief as in price-taking/value-giving to corporations? Bipartisans will be just as quick to not let prices fall and at the same time not allow estimates to novate.
 
+### [Can you back up the law of immigration without racism](https://www.quora.com/Can-you-back-up-the-law-of-immigration-without-racism)?
+
 # [Why are conservatives against cheap imports](https://www.quora.com/Why-are-conservatives-against-cheap-imports)?
 
 #### [Why does Chad Wolf think outsourcing is inefficient when labor comes here? Does he think outsourcing in general is inefficient/bad for American consumers](https://www.quora.com/unanswered/Why-does-Chad-Wolf-think-outsourcing-is-inefficient-when-labor-comes-here-Does-he-think-outsourcing-in-general-is-inefficient-bad-for-American-consumers)?
