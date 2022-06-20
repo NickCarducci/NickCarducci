@@ -122,6 +122,14 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 ## [Did you know that recidivist homicides matches prevalence of mental issues amongst the general population as well as amongst murderers](https://www.quora.com/unanswered/Did-you-know-that-recidivist-homicides-matches-prevalence-of-mental-issues-amongst-the-general-population-as-well-as-amongst-murderers)?
 
+[Isn’t bail just a form of bribery](https://www.quora.com/Isn-t-bail-just-a-form-of-bribery)?
+
+# [Isn’t a plea deal a lie under oath](https://www.quora.com/Isn-t-a-plea-deal-a-lie-under-oath)?
+
+## [Should tickets only be delivered to moving violators with video after an accident, specifically a rolling stop, eating/texting, or not wearing seatbelts, or should we retain fines? Should we not rely on people understanding the risks at this point](https://www.quora.com/Should-tickets-only-be-delivered-to-moving-violators-with-video-after-an-accident-specifically-a-rolling-stop-eating-texting-or-not-wearing-seatbelts-or-should-we-retain-fines-Should-we-not-rely-on-people)?
+
+#### [Would a truncated wholesale tax align the interests of cops and the people](https://www.quora.com/unanswered/Would-a-truncated-wholesale-tax-align-the-interests-of-cops-and-the-people)?
+
 ### [Is Larry Kudlow correct in saying that business expense income without taxes, fixed costs, cost of goods sold, government, and net (nominal) exports accounts for all inflation](https://www.quora.com/unanswered/Is-Larry-Kudlow-correct-in-saying-that-business-expense-income-without-taxes-fixed-costs-cost-of-goods-sold-government-and-net-nominal-exports-accounts-for-all-inflation)?
 
 # [Why doesn’t the best measure of inflation (CPI) include business expenses, government nor net (nominal) exports](https://www.quora.com/Why-doesn-t-the-best-measure-of-inflation-CPI-include-business-expenses-government-nor-net-nominal-exports)?
