@@ -6,6 +6,8 @@ Borrowing and lending is also stealing by [Third party donee beneficiary](https:
 
 ## [Why are higher prices good in corporate accounts](https://www.quora.com/unanswered/Why-are-higher-prices-good-in-corporate-accounts)?
 
+# Nick Carducci's answer to [What companies do well in stagflation](https://www.quora.com/unanswered/Why-are-product-developers-subject-to-third-party-donee-beneficiary-law-but-lenders-arent)?
+
 #### [Why are product developers subject to third party donee beneficiary law but lenders aren't](https://www.quora.com/unanswered/Why-are-product-developers-subject-to-third-party-donee-beneficiary-law-but-lenders-arent)?
 
 ### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
@@ -20,7 +22,7 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 ### [Do you have to pay sales tax under $10k per customer](https://scopebook.quora.com/Do-you-have-to-pay-sales-tax-under-10k-per-customer-1)? in Scopebook
 
-## [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
+### [Did slavery plantation owners save money on horizontal integration imputed general income, like tax exempt employee benefits as a cost of goods sold, today](https://www.quora.com/unanswered/Did-slavery-plantation-owners-save-money-on-horizontal-integration-imputed-general-income-like-tax-exempt-employee-benefits-as-a-cost-of-goods-sold-today)?
 
 # [Why is productivity to macroeconomics the second quadrant in microeconomics](https://www.quora.com/unanswered/Why-is-productivity-to-macroeconomics-the-second-quadrant-in-microeconomics)?
 
