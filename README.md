@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-# Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
+# [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
+
+#### Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
 
 > The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a **price-taker** for labor.
 
