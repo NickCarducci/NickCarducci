@@ -10,17 +10,6 @@
 
 [Should the 3-4m (50% per cohort) 40+ with gastrointestinal, cardiovascular, and neoplasm issues currently receiving disability payments drive Uber instead](https://www.quora.com/unanswered/Should-the-3-4m-50-per-cohort-40-with-gastrointestinal-cardiovascular-and-neoplasm-issues-currently-receiving-disability-payments-drive-Uber-instead)?
 
-<hr>
-
-[Should lending, estimates, escrow, warranty, and insurance be held to industry-specific payday loans to abide by EFT, third party donee beneficiary surrendered freedoms (i.e. EULA), & Corpus Linguistics division of labor economic efficiency](https://www.quora.com/unanswered/Should-lending-estimates-escrow-warranty-and-insurance-be-held-to-industry-specific-payday-loans-to-abide-by-EFT-third-party-donee-beneficiary-surrendered-freedoms-i-e-EULA-Corpus-Linguistics-division-of-labor)?
-
-## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
-
-#### [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
-
-### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
-
-# [Is labor responsible for overhead](https://www.quora.com/unanswered/Is-labor-responsible-for-overhead)?
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
@@ -134,6 +123,18 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 ## [Can I spend my delivery tip revenue like professionals and corporations do on employee benefits](https://www.quora.com/unanswered/Can-I-spend-my-delivery-tip-revenue-like-professionals-and-corporations-do-on-employee-benefits)?
 
 #### [Does banking the unbanked include bartenders so we don't have to hold/spend cash quarterly in a 1099 for tax exempt camps, tuition, and medical](https://www.quora.com/unanswered/Does-banking-the-unbanked-include-bartenders-so-we-dont-have-to-hold-spend-cash-quarterly-in-a-1099-for-tax-exempt-camps-tuition-and-medical)?
+
+<hr>
+
+[Should lending, estimates, escrow, warranty, and insurance be held to industry-specific payday loans to abide by EFT, third party donee beneficiary surrendered freedoms (i.e. EULA), & Corpus Linguistics division of labor economic efficiency](https://www.quora.com/unanswered/Should-lending-estimates-escrow-warranty-and-insurance-be-held-to-industry-specific-payday-loans-to-abide-by-EFT-third-party-donee-beneficiary-surrendered-freedoms-i-e-EULA-Corpus-Linguistics-division-of-labor)?
+
+## [Why is debt not subject to the third party donee beneficiary law](https://www.quora.com/Why-is-debt-not-subject-to-the-third-party-donee-beneficiary-law)?
+
+#### [Why would kids have to pay debt if parents don't? Why should bartenders and delivery drivers pay taxes if employee benefits, essential gifts, nor professional services do](https://www.quora.com/unanswered/Why-would-kids-have-to-pay-debt-if-parents-dont-Why-should-bartenders-and-delivery-drivers-pay-taxes-if-employee-benefits-essential-gifts-nor-professional-services-do)?
+
+### [Should a subcontractor be required to give up the product or escrow paid otherwise whenever the contractor wants](https://www.quora.com/unanswered/Should-a-subcontractor-be-required-to-give-up-the-product-or-escrow-paid-otherwise-whenever-the-contractor-wants)?
+
+# [Is labor responsible for overhead](https://www.quora.com/unanswered/Is-labor-responsible-for-overhead)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/pj1l700hh5ws35r/Screen%20Shot%202022-06-19%20at%2012.50.45%20PM.png?dl=0" alt="Future of Voting In New Jersey with Steve Trevalise of nj 101.5">](https://youtu.be/A2kSh0A8Ad0)
 
