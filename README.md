@@ -2,7 +2,7 @@
 
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
 
-[<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.quora.com)
+[<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
 
 ##### [Should the UT, NM, and WY leases to the treasury fracking permits by Biden be disbursed to checkable deposit accounts](https://www.quora.com/unanswered/Should-the-UT-NM-and-WY-leases-to-the-treasury-fracking-permits-by-Biden-be-disbursed-to-checkable-deposit-accounts)?
 
