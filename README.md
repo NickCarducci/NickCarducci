@@ -81,7 +81,7 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/ip5vamu279fioyo/trump%20occupy%20.jpeg?dl=0">](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)
 
-## Occupy the Capitol
+## Occupy the Capitol (teaching the president)
 
 > And here is his lawful belief, tearing ...ballots (if a thumb drive would matter, how would auditing servers?).
 > He is guilty of thinking it matters.
