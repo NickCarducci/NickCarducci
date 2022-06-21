@@ -65,7 +65,7 @@
 
 ### [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
 
-[Would you be deemed a danger to others if you became visibly angry and committed a simple "assault" threat when a utilitarian displaces your job with technology](https://www.quora.com/unanswered/Would-you-be-deemed-a-danger-to-others-if-you-became-visibly-angry-and-committed-a-simple-assault-threat-when-a-utilitarian-displaces-your-job-with-technology)?
+# [Would you be deemed a danger to others if you became visibly angry and committed a simple "assault" threat when a utilitarian displaces your job with technology](https://www.quora.com/unanswered/Would-you-be-deemed-a-danger-to-others-if-you-became-visibly-angry-and-committed-a-simple-assault-threat-when-a-utilitarian-displaces-your-job-with-technology)?
 
 [I'm a socialist. I believe John Catsimitidis, a grocer that deals in wholesale transactions, should pay for our police wholly. After saying socialists were originally anti-finance to Dick Morris, he said, "drop dead socialists." What should I do](https://www.quora.com/Im-a-socialist-I-believe-John-Catsimitidis-a-grocer-that-deals-in-wholesale-transactions-should-pay-for-our-police-wholly-After-saying-socialists-were-originally-anti-finance-to-Dick-Morris-he-said-drop-dead)?
 
