@@ -161,7 +161,7 @@ Estimates, warranty (NJ Consumer Fraud Act) are counterfeit, especially [expirin
 
 > [Madsen Pirie just said the Laffer Curve is generative of tax receipts is because of deficit the previous year, and otherwise the tax rate has no bearing on the revenue. Is he correct only if gov value added as a share of gross product is no matter](https://www.quora.com/Madsen-Pirie-just-said-the-Laffer-Curve-is-generative-of-tax-receipts-is-because-of-deficit-the-previous-year-and-otherwise-the-tax-rate-has-no-bearing-on-the-revenue-Is-he-correct-only-if-gov-value-added-as-a-share)? - [Is Ricardian economic's 'Crowding Out' regarding defense as a utility reduction by "servicing interest more than paying down principal," as Mick Mulvaney says](https://www.quora.com/Is-Ricardian-economics-Crowding-Out-regarding-defense-as-a-utility-reduction-by-servicing-interest-more-than-paying-down-principal-as-Mick-Mulvaney-says)?
 
-### [Instead of having tax exemptions, why not just pay cops less?](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less) [Why can cops and unprofessionals not file as a 1099 and spend tax-free](https://www.quora.com/Why-can-cops-and-unprofessionals-not-file-as-a-1099-and-spend-tax-free)?
+### [Instead of having tax exemptions, why not just pay cops less](https://www.quora.com/unanswered/Instead-of-having-tax-exemptions-why-not-just-pay-cops-less)? [Why can cops and unprofessionals not file as a 1099 and spend tax-free](https://www.quora.com/Why-can-cops-and-unprofessionals-not-file-as-a-1099-and-spend-tax-free)?
 
 # Banking [is free rider](https://sewageisamatterofdomesticviolence.quora.com/) mutable and [price-taking](https://realecon.quora.com/Does-insurance-cause-inflation-1)/value-giving for
 
