@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
+
+The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a price-taker for labor.
+
+[Should the 35.4% psychotic that are currently receiving disability payments instead drive for a rideshare app](https://www.quora.com/unanswered/Should-the-35-4-psychotic-that-are-currently-receiving-disability-payments-instead-drive-for-a-rideshare-app)?
+
+[Should the 3-4m (50% per cohort) 40+ with gastrointestinal, cardiovascular, and neoplasm issues currently receiving disability payments drive Uber instead](https://www.quora.com/unanswered/Should-the-3-4m-50-per-cohort-40-with-gastrointestinal-cardiovascular-and-neoplasm-issues-currently-receiving-disability-payments-drive-Uber-instead)?
+
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
