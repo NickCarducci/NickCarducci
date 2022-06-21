@@ -81,7 +81,17 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/ip5vamu279fioyo/trump%20occupy%20.jpeg?dl=0">](https://anchor.fm/micro-theory/episodes/trumps-reason-for-insurrection-e1jt624)
 
+And here is his lawful belief, tearing ...ballots
+
+He is guilty of thinking it matters.
+
+Or that phone call is a plant and he knows how hard drives work.
+
+What [are we gonna do here fellas, 11k votes] but occupy the capitol?!? Lock him up.
+
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
+
+# 40% dems, 10% support occupy with route to resolution OTHER THAN occupation but for what else than violence?
 
 ### [Do you have to pay sales tax under $10k per customer](https://scopebook.quora.com/Do-you-have-to-pay-sales-tax-under-10k-per-customer-1)? in Scopebook
 
