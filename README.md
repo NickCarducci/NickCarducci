@@ -83,7 +83,7 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 
 ## Occupy the Capitol
 
-> And here is his lawful belief, tearing ...ballots
+> And here is his lawful belief, tearing ...ballots (if a thumb drive would matter, how would auditing servers?).
 
 > He is guilty of thinking it matters.
 
