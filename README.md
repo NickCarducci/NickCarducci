@@ -84,11 +84,8 @@ He knows he would need a distributed database to prove otherwise](https://anchor
 ## Occupy the Capitol
 
 > And here is his lawful belief, tearing ...ballots (if a thumb drive would matter, how would auditing servers?).
-
 > He is guilty of thinking it matters.
-
 > Or that phone call is a plant and he knows how hard drives work.
-
 > What [are we gonna do here fellas, 11k votes] but occupy the capitol?!? Lock him up.
 
 [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com) 2024 (NJ non-voter anti-[insurance](https://www.quora.com/Will-stagflation-happen-when-universal-healthcare-does/answer/Nick-Carducci)). [Occupy Wall St](https://occupywallst.quora.com).
