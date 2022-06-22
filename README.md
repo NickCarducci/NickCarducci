@@ -4,6 +4,8 @@
 
 ### Rvc second candidate reconciliation non voters, ask: red flag law? tax employee benefits? gun supporters and non about having guns but not for dangerousness/predatory/[unconscionable subsidiary](https://www.quora.com/unanswered/Is-the-Joe-Biden-White-House-delusional-about-targeting-unconscionable-margins-without-a-percentage-nor-subsidiary-limitation) by [4.7m 2000-2013 FBI pre-attack](https://www.quora.com/Why-does-Chris-Christie-say-a-majority-of-mass-shooters-have-been-diagnosed-with-mental-health-issues) 160 successful stops, and 150/yr based on date+threat
 
+im in danger! asylum in portugal... cheap import islamic banking sent to Hell accross the universe?
+
 #### Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
 
 > The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a **price-taker** for labor.
