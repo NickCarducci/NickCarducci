@@ -2,7 +2,7 @@
 
 # [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
 
-### Rvc second candidate reconciliation non voters, ask: red flag law? tax employee benefits? gun supporters and non about having guns but not for dangerousness by 4.7m 2000-2013 FBI pre-attack 160 successful stops, and 150/yr based on date+threat
+### Rvc second candidate reconciliation non voters, ask: red flag law? tax employee benefits? gun supporters and non about having guns but not for dangerousness/predatory/[unconscionable subsidiary](https://www.quora.com/unanswered/Is-the-Joe-Biden-White-House-delusional-about-targeting-unconscionable-margins-without-a-percentage-nor-subsidiary-limitation) by [4.7m 2000-2013 FBI pre-attack](https://www.quora.com/Why-does-Chris-Christie-say-a-majority-of-mass-shooters-have-been-diagnosed-with-mental-health-issues) 160 successful stops, and 150/yr based on date+threat
 
 #### Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
 
