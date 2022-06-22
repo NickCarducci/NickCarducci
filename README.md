@@ -6,7 +6,7 @@
 
 > im in danger, if I am the only one without guns! asylum in portugal... cheap import islamic banking (transaction fee) sent to Hell accross the universe? marginal utility no less than value, employment begets deflation [suplexing the Phillips curve over the utility/labor axis](https://www.youtube.com/watch?v=r_WGO3PHEqw). IM DONE INVENTING THINGS FOR MY COMPETITORS['s unemployment benefits]! Uniform taxes and productivity is less expenses per hour or give me death!
 
-#### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve [over](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments) to the fourth quadrant over the x-axis
+#### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve over to the fourth quadrant over the x-axis[.](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)
 
 > The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a **price-taker** for labor.
 
