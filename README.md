@@ -8,7 +8,7 @@
 
 #### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve over to the fourth quadrant over the x-axis
 
-> The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a **price-taker** for labor. [Are we wasting money and hours worked by the Phillips curve in the first quadrant instead of the fourth because of the financial asks or later installments](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)?
+> The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a [**price-taker**](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments) for labor.
 
 [Should the 35.4% psychotic that are currently receiving disability payments instead drive for a rideshare app](https://www.quora.com/unanswered/Should-the-35-4-psychotic-that-are-currently-receiving-disability-payments-instead-drive-for-a-rideshare-app)?
 
