@@ -16,11 +16,15 @@
 
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
 
+[Are installment payments surrendering the bid of third party donee beneficiaries](https://www.quora.com/unanswered/Are-installment-payments-surrendering-the-bid-of-third-party-donee-beneficiaries)?
+
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
 
 ##### [Should the UT, NM, and WY leases to the treasury fracking permits by Biden be disbursed to checkable deposit accounts](https://www.quora.com/unanswered/Should-the-UT-NM-and-WY-leases-to-the-treasury-fracking-permits-by-Biden-be-disbursed-to-checkable-deposit-accounts)?
 
 # [Is implausible use leases not slavery](https://www.quora.com/unanswered/Is-implausible-use-leases-not-slavery)? [Is economic development loaned](https://www.quora.com/unanswered/Is-economic-development-loaned)? [Why are fixed costs considered real growth when its very appraisal is based on rents which forces demand to be price takers relative to outright built-to-sells](https://www.quora.com/unanswered/Why-are-fixed-costs-considered-real-growth-when-its-very-appraisal-is-based-on-rents-which-forces-demand-to-be-price-takers-relative-to-outright-built-to-sells)?
+
+## [What does a “permanent structure in a landscape” mean about lost jobs from technological advancement](https://www.quora.com/unanswered/What-does-a-permanent-structure-in-a-landscape-mean-about-lost-jobs-from-technological-advancement)?
 
 ### [Why are gifts and employee benefits for medical/tuition (essentials) treated as a businesses' COGS and exempt from income tax and nets real GDP with the government deficit](https://www.quora.com/unanswered/Why-are-gifts-and-employee-benefits-for-medical-tuition-essentials-treated-as-a-businesses-COGS-and-exempt-from-income-tax-and-nets-real-GDP-with-the-government-deficit)?
 
