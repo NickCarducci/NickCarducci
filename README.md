@@ -4,7 +4,7 @@
 
 ### Rvc second candidate reconciliation non voters, ask: red flag law? tax employee benefits? gun supporters and non about having guns but not for dangerousness/predatory/[unconscionable subsidiary](https://www.quora.com/unanswered/Is-the-Joe-Biden-White-House-delusional-about-targeting-unconscionable-margins-without-a-percentage-nor-subsidiary-limitation) by [4.7m 2000-2013 FBI pre-attack](https://www.quora.com/Why-does-Chris-Christie-say-a-majority-of-mass-shooters-have-been-diagnosed-with-mental-health-issues) 160 successful stops, and 150/yr based on date+threat
 
-> im in danger, if I am the only one without guns! asylum in portugal... cheap import islamic banking (transaction fee) sent to Hell accross the universe? marginal utility no less than value, employment begets deflation duplexing the Phillips curve over the utility/labor axis. IM DONE INVENTING THINGS FOR MY COMPETITORS('s unemployment benefits)! Uniform taxes and productivity is less expenses per hour or give me death!
+> im in danger, if I am the only one without guns! asylum in portugal... cheap import islamic banking (transaction fee) sent to Hell accross the universe? marginal utility no less than value, employment begets deflation duplexing the Phillips curve over the utility/labor axis. IM DONE INVENTING THINGS FOR MY COMPETITORS['s unemployment benefits]! Uniform taxes and productivity is less expenses per hour or give me death!
 
 #### Tax employee benefits - cancel corresponding bonds - flip the phillips curve over to the fourth quadrant over the x-axis
 
