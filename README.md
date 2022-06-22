@@ -22,6 +22,10 @@
 
 ##### [Should the UT, NM, and WY leases to the treasury fracking permits by Biden be disbursed to checkable deposit accounts](https://www.quora.com/unanswered/Should-the-UT-NM-and-WY-leases-to-the-treasury-fracking-permits-by-Biden-be-disbursed-to-checkable-deposit-accounts)?
 
+## [Is Biden not replacing the gas tax with higher oil leases](https://www.quora.com/Is-Biden-not-replacing-the-gas-tax-with-higher-oil-leases)?
+
+### [Should dollar owners get the revenue from rig rates instead of bond holders](https://www.quora.com/unanswered/Should-dollar-owners-get-the-revenue-from-rig-rates-instead-of-bond-holders)?
+
 # [Is implausible use leases not slavery](https://www.quora.com/unanswered/Is-implausible-use-leases-not-slavery)? [Is economic development loaned](https://www.quora.com/unanswered/Is-economic-development-loaned)? [Why are fixed costs considered real growth when its very appraisal is based on rents which forces demand to be price takers relative to outright built-to-sells](https://www.quora.com/unanswered/Why-are-fixed-costs-considered-real-growth-when-its-very-appraisal-is-based-on-rents-which-forces-demand-to-be-price-takers-relative-to-outright-built-to-sells)?
 
 ## [What does a “permanent structure in a landscape” mean about lost jobs from technological advancement](https://www.quora.com/unanswered/What-does-a-permanent-structure-in-a-landscape-mean-about-lost-jobs-from-technological-advancement)?
