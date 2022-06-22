@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-is duress to use your non-portable project a competitive advantage?
+[Is duress to use your non-portable project a competitive advantage](https://www.quora.com/unanswered/Is-duress-to-use-your-non-portable-project-a-competitive-advantage)?
 
 # [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
 
