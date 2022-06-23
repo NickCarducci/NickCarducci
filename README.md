@@ -10,11 +10,15 @@
 
 #### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve over to the fourth quadrant over the x-axis[.](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)
 
+[Are we wasting money and hours worked by the Phillips curve in the first quadrant instead of the fourth because of the financial asks or later installments](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)?
+
 > The division of labor is utility/(hour), the Phillips curve is the planar y-axis until employment competes for less labor instead of being a **price-taker** for labor.
 
 [Should the 35.4% psychotic that are currently receiving disability payments instead drive for a rideshare app](https://www.quora.com/unanswered/Should-the-35-4-psychotic-that-are-currently-receiving-disability-payments-instead-drive-for-a-rideshare-app)?
 
 [Should the 3-4m (50% per cohort) 40+ with gastrointestinal, cardiovascular, and neoplasm issues currently receiving disability payments drive Uber instead](https://www.quora.com/unanswered/Should-the-3-4m-50-per-cohort-40-with-gastrointestinal-cardiovascular-and-neoplasm-issues-currently-receiving-disability-payments-drive-Uber-instead)?
+
+# [Nick Carducci's answer to Why do some people evade tax](https://secretary.quora.com/Why-do-some-people-evade-tax-1)? in Secretary
 
 ## [Is the government liable for admitting that technology is being relented upon for busywork](https://www.quora.com/Is-the-government-liable-for-admitting-that-technology-is-being-relented-upon-for-busywork)?
 
