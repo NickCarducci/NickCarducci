@@ -6,7 +6,7 @@
 
 > im in danger, if I am the only one without guns! asylum in portugal... cheap import islamic banking (transaction fee) sent to Hell accross the universe? marginal utility no less than value, employment begets deflation [suplexing the Phillips curve over the utility/labor axis](https://www.youtube.com/watch?v=r_WGO3PHEqw). IM DONE INVENTING THINGS FOR MY COMPETITORS['s unemployment benefits]! Uniform taxes and productivity is less expenses per hour or give me death! [Why is the U.S. putting murderers in psychiatric hospitals](https://www.quora.com/Why-is-the-U-S-putting-murderers-in-psychiatric-hospitals)? [Is involuntary commitment for hearsay evidence](https://www.quora.com/unanswered/Is-involuntary-commitment-for-hearsay-evidence)? [Why is the use of recreational drugs a mental illness](https://www.quora.com/Why-is-the-use-of-recreational-drugs-a-mental-illness)? [Why can someone else kill you when they determine you will die but you cannot yourself when you wish to](https://www.quora.com/unanswered/Why-can-someone-else-kill-you-when-they-determine-you-will-die-but-you-cannot-yourself-when-you-wish-to)? [Why did I get involuntarily committed for saying "rollover insurance" to a doctor](https://www.quora.com/unanswered/Why-did-I-get-involuntarily-committed-for-saying-rollover-insurance-to-a-doctor)?
 
-## [Nick Carducci's answer to Why is a bone marrow transplant so expensive](https://rolloverinsurance.quora.com/Why-is-a-bone-marrow-transplant-so-expensive-1)? in Rollover Insurance
+## Nick Carducci's answer to [Why is a bone marrow transplant so expensive](https://rolloverinsurance.quora.com/Why-is-a-bone-marrow-transplant-so-expensive-1)? in Rollover Insurance
 
 #### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve over to the fourth quadrant over the x-axis[.](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)
 
@@ -62,7 +62,7 @@
 
 > Gas Price Gouging Prevention Act has no quantitative amount of margin, and the the bill is a pay to play scheme, they won’t even jail such “unconscionable”-subjective-transgressors. Knowing the bipartisans if it were to pass the margins would be moved to [subsidiary input costs](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#banking-is-free-rider-mutable-and-price-takingvalue-giving-for).
 
-#### [Nick Carducci's answer to Should Congress raise taxes to fight inflation](https://www.quora.com/Should-Congress-raise-taxes-to-fight-inflation/answer/Nick-Carducci)?
+#### Nick Carducci's answer to [Should Congress raise taxes to fight inflation](https://www.quora.com/Should-Congress-raise-taxes-to-fight-inflation/answer/Nick-Carducci)?
 
 [Was it not the point of gas tax that the greenhouse gas wasn’t worth the price increase](https://www.quora.com/unanswered/Was-it-not-the-point-of-gas-tax-that-the-greenhouse-gas-wasn-t-worth-the-price-increase)?
 
