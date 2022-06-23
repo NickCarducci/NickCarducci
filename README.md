@@ -64,6 +64,8 @@
 
 [Was it not the point of gas tax that the greenhouse gas wasn’t worth the price increase](https://www.quora.com/unanswered/Was-it-not-the-point-of-gas-tax-that-the-greenhouse-gas-wasn-t-worth-the-price-increase)?
 
+[Is Biden not replacing the gas tax with higher oil leases](https://www.quora.com/Is-Biden-not-replacing-the-gas-tax-with-higher-oil-leases)?
+
 > [Are the facts that credit, insurance, and leasing hit the ask (micro) & are valuable by physician rate (macro), let alone the federal reserve compels less borrowing "to lower [non-utilitarian] inflation," proofs that debt in general causes inflation](https://www.quora.com/unanswered/Are-the-facts-that-credit-insurance-and-leasing-hit-the-ask-micro-are-valuable-by-physician-rate-macro-let-alone-the-federal-reserve-compels-less-borrowing-to-lower-non-utilitarian-inflation-proofs-that-debt-in)?
 
 #### Anyway, [those leases](https://biologicaldiversity.org/w/news/press-releases/new-data-biden-slays-trumps-first-year-drilling-permitting-by-34-2022-01-21/) should go towards dollar owners (3%APR return/$) and [keystone is 1%](https://2024nj.com/oil).
