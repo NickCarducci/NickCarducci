@@ -56,11 +56,11 @@
 
 ## [Why are conservatives so emphatic about the Keystone XL pipeline when oil inflation is double while only being 1/100 or 1% of consumption](https://www.quora.com/Why-are-conservatives-so-emphatic-about-the-Keystone-XL-pipeline-when-oil-inflation-is-double-while-only-being-1-100-or-1-of-consumption)?
 
-## [Does 4% change in net oil exports matter as Donald Trump thinks when we consume 18m barrels per day and inflation is 100% more](https://www.quora.com/Does-4-change-in-net-oil-exports-matter-as-Donald-Trump-thinks-when-we-consume-18m-barrels-per-day-and-inflation-is-100-more)?
+#### [Does 4% change in net oil exports matter as Donald Trump thinks when we consume 18m barrels per day and inflation is 100% more](https://www.quora.com/Does-4-change-in-net-oil-exports-matter-as-Donald-Trump-thinks-when-we-consume-18m-barrels-per-day-and-inflation-is-100-more)?
 
 > Gas Price Gouging Prevention Act has no quantitative amount of margin, and the the bill is a pay to play scheme, they won’t even jail such “unconscionable”-subjective-transgressors. Knowing the bipartisans if it were to pass the margins would be moved to [subsidiary input costs](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#banking-is-free-rider-mutable-and-price-takingvalue-giving-for).
 
-## [Should Congress raise taxes to fight inflation](https://www.quora.com/Should-Congress-raise-taxes-to-fight-inflation/answer/Nick-Carducci)?
+#### [Should Congress raise taxes to fight inflation](https://www.quora.com/Should-Congress-raise-taxes-to-fight-inflation/answer/Nick-Carducci)?
 
 [Was it not the point of gas tax that the greenhouse gas wasn’t worth the price increase](https://www.quora.com/unanswered/Was-it-not-the-point-of-gas-tax-that-the-greenhouse-gas-wasn-t-worth-the-price-increase)?
 
