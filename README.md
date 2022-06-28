@@ -2,6 +2,8 @@
 
 Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
+value/hour is productivity to macroeconomists and leisure utilization, amortized, to microeconomists. the answer is 4/2.
+
 # [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
 
 ### Rvc second candidate [reconciliation for non voters['s stealers]](https://epiology.quora.com/Why-is-a-trivariate-first-past-the-post-majority-less-significant-than-ranked-choice-voting), ask: red flag law? tax employee benefits? gun supporters and non about having guns but not for dangerousness/predatory/[unconscionable subsidiary](https://www.quora.com/unanswered/Is-the-Joe-Biden-White-House-delusional-about-targeting-unconscionable-margins-without-a-percentage-nor-subsidiary-limitation) by [4.7m 2000-2013 FBI pre-attack](https://www.quora.com/Why-does-Chris-Christie-say-a-majority-of-mass-shooters-have-been-diagnosed-with-mental-health-issues) 160 successful stops, and 150/yr based on date+threat
