@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+[How much better is having a sample size be one hundredth of the population to have meaningful percentile variance and significance from the real mean than just rolling for 100 samples](https://www.quora.com/unanswered/Why-does-the-annual-5-year-cohort-level-only-going-back-to-1937-prove-enough-significance-for-death-rates)?
+
+[Why don't we call the new vaccines mRNA sporing grafts](https://www.quora.com/Why-dont-we-call-the-new-vaccines-mRNA-sporing-grafts)?
+
 [Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/unanswered/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
 
 #### [What is the problem with voter fraud or a single USB thumb drive if the whole election is on a centralized database](https://www.quora.com/What-is-the-problem-with-voter-fraud-or-a-single-USB-thumb-drive-if-the-whole-election-is-on-a-centralized-database)?
