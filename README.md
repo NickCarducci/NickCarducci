@@ -1,8 +1,10 @@
 ### Hi there 👋
 
-#### [Are artifacts in vitro and facts compounds made in vivo](https://www.quora.com/unanswered/Are-artifacts-in-vitro-and-facts-compounds-made-in-vivo)?
+#### [Are artifacts in vitro and facts compounds made in vivo](https://www.quora.com/unanswered/Are-artifacts-in-vitro-and-facts-compounds-made-in-vivo)? Nick Carducci's answer to [If Covid is asymptomatic, does that mean it is uncorrelated](https://www.quora.com/If-Covid-is-asymptomatic-does-that-mean-it-is-uncorrelated/answer/Nick-Carducci)?
 
 <img align="right" alt="" src="https://www.dl.dropboxusercontent.com/s/a3oz2i7nu2tc1bz/Screen%20Shot%202022-06-28%20at%2011.00.40%20AM.png?dl=0">
+
+> [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization over value to make up for the higher valued higher educated supervisory/exclusionary by non-portability and installments with price taking product](https://www.quora.com/unanswered/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-over-value-to-make-up-for-the-higher-valued-higher-educated-supervisory-exclusionary-by-non-portability-and)?
 
 [How much better is having a sample size be one hundredth of the population to have meaningful percentile variance and significance from the real mean than just rolling for 100 samples](https://www.quora.com/unanswered/Why-does-the-annual-5-year-cohort-level-only-going-back-to-1937-prove-enough-significance-for-death-rates)?
 
