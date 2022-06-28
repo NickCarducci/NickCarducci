@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+convict intranet no need for backdoors. [Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
+
+## [Would 95% of a known population or 100 random selections like time periods be enough distribution to call an election system distributed](https://www.quora.com/unanswered/Would-95-of-a-known-population-or-100-random-selections-like-time-periods-be-enough-distribution-to-call-an-election-system-distributed)?
+
 [Why does the annual 5-year cohort level only going back to 1937 prove enough significance for death rates](https://www.quora.com/Why-does-the-annual-5-year-cohort-level-only-going-back-to-1937-prove-enough-significance-for-death-rates)?
 
 #### [Are artifacts in vitro and facts compounds made in vivo](https://www.quora.com/unanswered/Are-artifacts-in-vitro-and-facts-compounds-made-in-vivo)? Nick Carducci's answer to [If Covid is asymptomatic, does that mean it is uncorrelated](https://www.quora.com/If-Covid-is-asymptomatic-does-that-mean-it-is-uncorrelated/answer/Nick-Carducci)?
