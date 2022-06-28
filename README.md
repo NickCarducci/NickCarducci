@@ -6,7 +6,7 @@ I didn't go to stupid/self-stunting class!
 
 Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
-value/hour is productivity to macroeconomists and leisure utilization, amortized, to microeconomists. the answer is 4/2.
+productivity is value/hour to macroeconomists and leisure utilization, amortized, to microeconomists. the answer is 4/2.
 
 kondratiev old school socialists destroy value. financial markets and institutions stood by lending promising third party donee beneficiary.
 
