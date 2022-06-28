@@ -8,7 +8,7 @@ convict intranet no need for backdoors. [Would providing a license to drug gangs
 
 #### [Are artifacts in vitro and facts compounds made in vivo](https://www.quora.com/unanswered/Are-artifacts-in-vitro-and-facts-compounds-made-in-vivo)? Nick Carducci's answer to [If Covid is asymptomatic, does that mean it is uncorrelated](https://www.quora.com/If-Covid-is-asymptomatic-does-that-mean-it-is-uncorrelated/answer/Nick-Carducci)?
 
-<img align="right" alt="" src="https://www.dl.dropboxusercontent.com/s/a3oz2i7nu2tc1bz/Screen%20Shot%202022-06-28%20at%2011.00.40%20AM.png?dl=0">
+<img align="left" alt="" src="https://www.dl.dropboxusercontent.com/s/a3oz2i7nu2tc1bz/Screen%20Shot%202022-06-28%20at%2011.00.40%20AM.png?dl=0">
 
 # Nick Carducci's answer to [What is "rent seeking"](https://www.quora.com/What-is-rent-seeking-3/answer/Nick-Carducci)?
 
@@ -42,6 +42,8 @@ kondratiev old school socialists destroy value. financial markets and institutio
 
 ## Nick Carducci's answer to [Why is a bone marrow transplant so expensive](https://rolloverinsurance.quora.com/Why-is-a-bone-marrow-transplant-so-expensive-1)? in Rollover Insurance
 
+<img align="right" alt="Will the market crash if I rebuild Node.js but for the browser?" src="https://www.dl.dropboxusercontent.com/s/eevt0925gml7edg/Screen%20Shot%202022-06-28%20at%202.41.34%20PM.png?dl=0">
+
 #### Tax employee benefits - cancel cor[respond](https://reverseamortization.quora.com)ing bonds - flip the phillips curve over to the fourth quadrant over the x-axis[.](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)
 
 [Are we wasting money and hours worked by the Phillips curve in the first quadrant instead of the fourth because of the financial asks or later installments](https://www.quora.com/unanswered/Are-we-wasting-money-and-hours-worked-by-the-Phillips-curve-in-the-first-quadrant-instead-of-the-fourth-because-of-the-financial-asks-or-later-installments)?
@@ -58,7 +60,7 @@ kondratiev old school socialists destroy value. financial markets and institutio
 
 [Are installment payments surrendering the bid of third party donee beneficiaries](https://www.quora.com/unanswered/Are-installment-payments-surrendering-the-bid-of-third-party-donee-beneficiaries)? - [Is duress to use your non-portable project a competitive advantage](https://www.quora.com/unanswered/Is-duress-to-use-your-non-portable-project-a-competitive-advantage)?
 
-[<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0">](https://truncatedwholesaletax.com)
 
 ##### [Should the UT, NM, and WY leases to the treasury fracking permits by Biden be disbursed to checkable deposit accounts](https://www.quora.com/unanswered/Should-the-UT-NM-and-WY-leases-to-the-treasury-fracking-permits-by-Biden-be-disbursed-to-checkable-deposit-accounts)?
 
