@@ -24,7 +24,7 @@ convict intranet no need for backdoors. [Would providing a license to drug gangs
 
 #### [What is the problem with voter fraud or a single USB thumb drive if the whole election is on a centralized database](https://www.quora.com/What-is-the-problem-with-voter-fraud-or-a-single-USB-thumb-drive-if-the-whole-election-is-on-a-centralized-database)?
 
-I didn't go to stupid/self-stunting class!
+I didn't [go to stupid/self-stunting class](https://www.quora.com/unanswered/Is-the-thing-that-bothers-weekend-shooters-that-the-people-in-charge-are-self-stunting-us-all-in-economic-policy-for-surplus-producer-value-beyond-marginal-utility-by-installments-of-rent-seeking-forcing-price?comment_id=11935561&comment_type=1&__filter__=all&__nsrc__=notif_page&__sncid__=28417348180&__snid3__=38548076844)!
 
 Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
