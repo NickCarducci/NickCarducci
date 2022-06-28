@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized.
+Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
 # [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
 
