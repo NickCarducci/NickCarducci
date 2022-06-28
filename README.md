@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+[Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/unanswered/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
+
 #### [What is the problem with voter fraud or a single USB thumb drive if the whole election is on a centralized database](https://www.quora.com/What-is-the-problem-with-voter-fraud-or-a-single-USB-thumb-drive-if-the-whole-election-is-on-a-centralized-database)?
 
 I didn't go to stupid/self-stunting class!
