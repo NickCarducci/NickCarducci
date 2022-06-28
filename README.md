@@ -2,7 +2,7 @@
 
 #### [What is the problem with voter fraud or a single USB thumb drive if the whole election is on a centralized database](https://www.quora.com/What-is-the-problem-with-voter-fraud-or-a-single-USB-thumb-drive-if-the-whole-election-is-on-a-centralized-database)?
 
-I didn't go to stupid class!
+I didn't go to stupid/self-stunting class!
 
 Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
