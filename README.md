@@ -1,8 +1,16 @@
 ### Hi there 👋
 
+#### [What is the problem with voter fraud or a single USB thumb drive if the whole election is on a centralized database](https://www.quora.com/What-is-the-problem-with-voter-fraud-or-a-single-USB-thumb-drive-if-the-whole-election-is-on-a-centralized-database)?
+
+I didn't go to stupid class!
+
 Corpus Linguistics for division of labor=leisure utilization 4/2 hour/expense utility amortized, micro/macro.
 
 value/hour is productivity to macroeconomists and leisure utilization, amortized, to microeconomists. the answer is 4/2.
+
+kondratiev old school socialists destroy value. financial markets and institutions stood by lending promising third party donee beneficiary.
+
+> Vulgar socialism (and from it in turn a section of the democrats) has taken over distribution as production[, not productive-ward]. After the real relation has long been made clear, why retrogress again? Communism deprives no man of the power to appropriate the products of society; all that it does is to deprive him of the power to subjugate the labour of others by means of such appropriations.
 
 # [Why is driving the economy downward in terms of installments paid later bad for utility assuming that is to work less](https://www.quora.com/unanswered/Why-is-driving-the-economy-downward-in-terms-of-installments-paid-later-bad)?
 
