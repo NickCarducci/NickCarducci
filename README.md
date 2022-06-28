@@ -4,7 +4,9 @@
 
 <img align="right" alt="" src="https://www.dl.dropboxusercontent.com/s/a3oz2i7nu2tc1bz/Screen%20Shot%202022-06-28%20at%2011.00.40%20AM.png?dl=0">
 
-# Nick Carducci's answer to [What is "rent seeking"](https://www.quora.com/What-is-rent-seeking-3/answer/Nick-Carducci)? (marginal utility less THAN producer surplus or marginal utility, in other words value less marginal utility).
+# Nick Carducci's answer to [What is "rent seeking"](https://www.quora.com/What-is-rent-seeking-3/answer/Nick-Carducci)?
+
+### (marginal utility less THAN producer surplus or marginal utility, in other words value less marginal utility).
 
 > [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization over value to make up for the higher valued higher educated supervisory/exclusionary by non-portability and installments with price taking product](https://www.quora.com/unanswered/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-over-value-to-make-up-for-the-higher-valued-higher-educated-supervisory-exclusionary-by-non-portability-and)?
 
