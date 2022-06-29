@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+[Does a traditional fee for service over Medicare Advantage Plans usage mean people purchase expiring price taking insurance pool accounts without duress](https://www.quora.com/Does-a-traditional-fee-for-service-over-Medicare-Advantage-Plans-usage-mean-people-purchase-expiring-price-taking-insurance-pool-accounts-without-duress)?
+
 [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
 convict intranet no need for backdoors. [Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
