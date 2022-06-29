@@ -8,7 +8,7 @@ convict intranet no need for backdoors. [Would providing a license to drug gangs
 
 #### [Are artifacts in vitro and facts compounds made in vivo](https://www.quora.com/unanswered/Are-artifacts-in-vitro-and-facts-compounds-made-in-vivo)? Nick Carducci's answer to [If Covid is asymptomatic, does that mean it is uncorrelated](https://www.quora.com/If-Covid-is-asymptomatic-does-that-mean-it-is-uncorrelated/answer/Nick-Carducci)?
 
-<img align="left" alt="" src="https://www.dl.dropboxusercontent.com/s/a3oz2i7nu2tc1bz/Screen%20Shot%202022-06-28%20at%2011.00.40%20AM.png?dl=0">
+<img align="left" alt="" src="https://www.dl.dropboxusercontent.com/s/mi7pbk93nb7f8fj/Screen%20Shot%202022-06-29%20at%2011.11.51%20AM.png?dl=0">
 
 # Nick Carducci's answer to [What is "rent seeking"](https://www.quora.com/What-is-rent-seeking-3/answer/Nick-Carducci)?
 
