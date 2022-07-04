@@ -16,7 +16,7 @@
 
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
 
-### [Are scientific hypothesis valid before an industry variable 11/12 consensus](https://www.quora.com/unanswered/Are-scientific-hypothesis-valid-before-an-industry-variable-11-12-consensus)?]
+### [Are scientific hypothesis valid before an industry variable 11/12 consensus](https://www.quora.com/unanswered/Are-scientific-hypothesis-valid-before-an-industry-variable-11-12-consensus)?
 
 > [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
