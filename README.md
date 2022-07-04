@@ -6,6 +6,8 @@
 
 ## [Are price controls consumer surplus as are expiring payment installments producer surplus](https://www.quora.com/unanswered/Are-price-controls-consumer-surplus-as-are-expiring-payment-installments-producer-surplus)?
 
+[<img align="right" alt="sliwa homeless neuter" src="https://www.dl.dropboxusercontent.com/s/pdr25p917emyirj/curtis%20homeless%20neuter.png?dl=0">](https://youtu.be/WlSVwRaO-iQ?t=737)
+
 > **Are you saying that supply and demand is not in the first quadrant canonically of a matrix, currently?** *I am also just matching surplus value by Marx with the later-microeconomic calculus [not theory* (**calculus/statistics is prerequisite** for [Johns Hopkins University](https://quora.com/topic/Johns-Hopkins-University) arts and sciences’ economics curriculum. I veer away from the later parts of their program in macroeconomics and ended with a Political Science major with an **economics minor because I see micro/macro at odds** in terms of *level productivity or leisure attainment, 4/2 quadrant-wise being the latter preferred ***utility, amortized*** however you take it or invest fixed startup costs in, as elastic as possible to **maximize period/hour-GDP/p**)].
 
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
