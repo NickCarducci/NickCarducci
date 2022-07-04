@@ -195,6 +195,8 @@ kondratiev old school socialists destroy value. financial markets and institutio
 
 ## [Nick Carducci's answer to Is communism antitrust](https://marx.quora.com/Is-communism-antitrust-1)? in Marx
 
+#### [Does Marxist surplus value not not include contractors](https://www.quora.com/unanswered/Does-Marxist-surplus-value-not-not-include-contractors)?
+
 > Borrowing and lending is also stealing by [Third party donee beneficiary](https://thirdpartybeneficiary.quora.com/). Soon we will move to [industry-specific payday scheme](https://maxroyalties.quora.com/) and [Bank Transaction Fees](https://www.quora.com/topic/Bank-Transaction-Fees), no [Tax Exemptions](https://www.quora.com/topic/Tax-Exemptions), neither, just pay cops with [Truncated Wholesale Tax](https://truncatedwholesaletax.quora.com/). To say borrowing saves money forgets the price-taking/value-giving nature of market-making a spread otherwise price-giving/value-taking by ask matching budget constraints. [Why is raising rates and cancelling debt instead of reverse amortizing cash:debt by annual income, as a matter of third party donee beneficiary surrendered freedom to bid, by counterfeit contractors, as with end user license agreements](https://www.quora.com/unanswered/Why-do-you-like-to-raise-rates-and-cancel-debt-instead-of-reverse-amortize-as-a-matter-of-third-party-donee-beneficiary-surrendered-freedom-to-bid-by-counterfeit-contractors-as-with-end-user-license-agreements)?
 
 ## [Why are higher prices good in corporate accounts](https://www.quora.com/unanswered/Why-are-higher-prices-good-in-corporate-accounts)?
