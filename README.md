@@ -10,6 +10,8 @@
 
 #### [Does nationalism not kill for surplus producer value alone](https://www.quora.com/unanswered/Does-nationalism-not-kill-for-surplus-producer-value-alone)?
 
+### [Are price controls attenuation of expiring payment installments](https://www.quora.com/unanswered/Are-price-controls-attenuation-of-expiring-payment-installments)?
+
 > **Are you saying that supply and demand is not in the first quadrant canonically of a matrix, currently?** *I am also just matching surplus value by Marx with the later-microeconomic calculus [not theory* (**calculus/statistics is prerequisite** for [Johns Hopkins University](https://quora.com/topic/Johns-Hopkins-University) arts and sciences’ economics curriculum. I veer away from the later parts of their program in macroeconomics and ended with a Political Science major with an **economics minor because I see micro/macro at odds** in terms of *level productivity or leisure attainment, 4/2 quadrant-wise being the latter preferred ***utility, amortized*** however you take it or invest fixed startup costs in, as elastic as possible to **maximize period/hour-GDP/p**)].
 
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
