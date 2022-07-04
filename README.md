@@ -2,6 +2,8 @@
 
 #### [Does Islamic banking preclude surplus value beyond marginal contractor and labor utility in expiring payment installments and price controls](https://www.quora.com/unanswered/Does-Islamic-banking-preclude-surplus-value-beyond-marginal-contractor-and-labor-utility-in-expiring-payment-installments-and-price-controls)?
 
+## [Are price controls consumer surplus as are expiring payment installments producer surplus](https://www.quora.com/unanswered/Are-price-controls-consumer-surplus-as-are-expiring-payment-installments-producer-surplus)?
+
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
 
 [Is a thinking person dangerous to assisted outpatient care](https://www.quora.com/unanswered/Is-a-thinking-person-dangerous-to-assisted-outpatient-care)?
