@@ -20,6 +20,8 @@
 
 > [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
+[Are price controls attenuation of expiring payment installments](https://www.quora.com/unanswered/Are-price-controls-attenuation-of-expiring-payment-installments)?
+
 #### [Why not house the homeless by grounds of trespassing to nowhere instead of scapegoating poor economic policy with psychiatric determinism](https://www.quora.com/Why-not-house-the-homeless-by-grounds-of-trespassing-to-nowhere-instead-of-scapegoating-poor-economic-policy-with-psychiatric-determinism)?
 
 ### [Why were bookies prosecuted](https://www.quora.com/unanswered/Why-were-bookies-prosecuted)?
