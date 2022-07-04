@@ -24,7 +24,11 @@
 
 [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
-convict intranet no need for backdoors. [Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
+# [Is the blessings of liberty more important than the guarantee application of protection by legislature or executive to Americans](https://www.quora.com/Is-the-blessings-of-liberty-more-important-than-the-guarantee-application-of-protection-by-legislature-or-executive-to-Americans)?
+
+## [Is end-to-end encryption not misleading with the private key to be on iCloud servers that is the FBI backdoor](https://www.quora.com/unanswered/Is-end-to-end-encryption-not-misleading-with-the-private-key-to-be-on-iCloud-servers-that-is-the-FBI-backdoor)?
+
+[Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
 
 ## [Would 95% of a known population or 100 random selections like time periods be enough distribution to call an election system distributed](https://www.quora.com/unanswered/Would-95-of-a-known-population-or-100-random-selections-like-time-periods-be-enough-distribution-to-call-an-election-system-distributed)?
 
