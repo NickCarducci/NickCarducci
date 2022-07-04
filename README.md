@@ -30,6 +30,8 @@
 
 # [Did prohibition not increase violence](https://www.quora.com/Did-prohibition-not-increase-violence)?
 
+#### [Should you take red flags seriously since they will seek revenge](https://www.quora.com/unanswered/Should-you-take-red-flags-seriously-since-they-will-seek-revenge)?
+
 [Is a thinking person dangerous to assisted outpatient care](https://www.quora.com/unanswered/Is-a-thinking-person-dangerous-to-assisted-outpatient-care)?
 
 [Does a traditional fee for service over Medicare Advantage Plans usage mean people purchase expiring price taking insurance pool accounts without duress](https://www.quora.com/Does-a-traditional-fee-for-service-over-Medicare-Advantage-Plans-usage-mean-people-purchase-expiring-price-taking-insurance-pool-accounts-without-duress)?
