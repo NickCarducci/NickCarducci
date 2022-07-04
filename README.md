@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-# Destroy jobs: [Why does Senator Menendez claim to be an animal rights protector whilst Fauci is according lobotomies to cats in Russia](https://www.quora.com/unanswered/Why-does-Senator-Menendez-claim-to-be-an-animal-rights-protector-whilst-Fauci-is-according-lobotomies-to-cats-in-Russia)? [()](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#can-we-replace-the-fda-with-open-source-and-logingov-know-your-customer)
+# Destroy jobs: [Why does Senator Menendez claim to be an animal rights protector whilst Fauci is according lobotomies to cats in Russia](https://www.quora.com/unanswered/Why-does-Senator-Menendez-claim-to-be-an-animal-rights-protector-whilst-Fauci-is-according-lobotomies-to-cats-in-Russia)? 
+
+[()](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#can-we-replace-the-fda-with-open-source-and-logingov-know-your-customer)
 
 #### 🧂🏧 🐿 [Does Islamic banking preclude surplus value beyond marginal contractor and labor utility in expiring payment installments and price controls](https://www.quora.com/unanswered/Does-Islamic-banking-preclude-surplus-value-beyond-marginal-contractor-and-labor-utility-in-expiring-payment-installments-and-price-controls)?
 
