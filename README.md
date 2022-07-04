@@ -8,6 +8,16 @@
 
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
 
+### [Are scientific hypothesis valid before an industry variable 11/12 consensus](https://www.quora.com/unanswered/Are-scientific-hypothesis-valid-before-an-industry-variable-11-12-consensus)?
+
+#### [Why not house the homeless by grounds of trespassing to nowhere instead of scapegoating poor economic policy with psychiatric determinism](https://www.quora.com/Why-not-house-the-homeless-by-grounds-of-trespassing-to-nowhere-instead-of-scapegoating-poor-economic-policy-with-psychiatric-determinism)?
+
+### [Why were bookies prosecuted](https://www.quora.com/unanswered/Why-were-bookies-prosecuted)?
+
+## [Did the Irish or Italian early arrivers do any lending, insurance, or leasing](https://www.quora.com/unanswered/Did-the-Irish-or-Italian-early-arrivers-do-any-lending-insurance-or-leasing)?
+
+# [Did prohibition not increase violence](https://www.quora.com/Did-prohibition-not-increase-violence)?
+
 [Is a thinking person dangerous to assisted outpatient care](https://www.quora.com/unanswered/Is-a-thinking-person-dangerous-to-assisted-outpatient-care)?
 
 [Does a traditional fee for service over Medicare Advantage Plans usage mean people purchase expiring price taking insurance pool accounts without duress](https://www.quora.com/Does-a-traditional-fee-for-service-over-Medicare-Advantage-Plans-usage-mean-people-purchase-expiring-price-taking-insurance-pool-accounts-without-duress)?
