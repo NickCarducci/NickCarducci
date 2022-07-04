@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#### 🧂🏧 🐿[Does Islamic banking preclude surplus value beyond marginal contractor and labor utility in expiring payment installments and price controls](https://www.quora.com/unanswered/Does-Islamic-banking-preclude-surplus-value-beyond-marginal-contractor-and-labor-utility-in-expiring-payment-installments-and-price-controls)?
+#### 🧂🏧 🐿 [Does Islamic banking preclude surplus value beyond marginal contractor and labor utility in expiring payment installments and price controls](https://www.quora.com/unanswered/Does-Islamic-banking-preclude-surplus-value-beyond-marginal-contractor-and-labor-utility-in-expiring-payment-installments-and-price-controls)?
 
 ## [Are price controls consumer surplus as are expiring payment installments producer surplus](https://www.quora.com/unanswered/Are-price-controls-consumer-surplus-as-are-expiring-payment-installments-producer-surplus)?
 
