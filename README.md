@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+# Destroy jobs
+
 #### 🧂🏧 🐿 [Does Islamic banking preclude surplus value beyond marginal contractor and labor utility in expiring payment installments and price controls](https://www.quora.com/unanswered/Does-Islamic-banking-preclude-surplus-value-beyond-marginal-contractor-and-labor-utility-in-expiring-payment-installments-and-price-controls)?
 
 ## [Are price controls consumer surplus as are expiring payment installments producer surplus](https://www.quora.com/unanswered/Are-price-controls-consumer-surplus-as-are-expiring-payment-installments-producer-surplus)?
@@ -8,7 +10,9 @@
 
 # [Does malfeasance kill](https://www.quora.com/unanswered/Does-malfeasance-kill)?
 
-### [Are scientific hypothesis valid before an industry variable 11/12 consensus](https://www.quora.com/unanswered/Are-scientific-hypothesis-valid-before-an-industry-variable-11-12-consensus)?
+### [Are scientific hypothesis valid before an industry variable 11/12 consensus](https://www.quora.com/unanswered/Are-scientific-hypothesis-valid-before-an-industry-variable-11-12-consensus)?]
+
+> [Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
 #### [Why not house the homeless by grounds of trespassing to nowhere instead of scapegoating poor economic policy with psychiatric determinism](https://www.quora.com/Why-not-house-the-homeless-by-grounds-of-trespassing-to-nowhere-instead-of-scapegoating-poor-economic-policy-with-psychiatric-determinism)?
 
@@ -21,8 +25,6 @@
 [Is a thinking person dangerous to assisted outpatient care](https://www.quora.com/unanswered/Is-a-thinking-person-dangerous-to-assisted-outpatient-care)?
 
 [Does a traditional fee for service over Medicare Advantage Plans usage mean people purchase expiring price taking insurance pool accounts without duress](https://www.quora.com/Does-a-traditional-fee-for-service-over-Medicare-Advantage-Plans-usage-mean-people-purchase-expiring-price-taking-insurance-pool-accounts-without-duress)?
-
-[Is high school exogenous or coincidental/endogenous in vitro causing marginal leisure utilization utility over surplus producer value of the higher educated supervisory/exclusionary non-portable and price-taking product installments](https://www.quora.com/Is-high-school-exogenous-or-coincidental-endogenous-in-vitro-causing-marginal-leisure-utilization-utility-over-surplus-producer-value-of-the-higher-educated-supervisory-exclusionary-non-portable-and-price-taking)?
 
 # [Is the blessings of liberty more important than the guarantee application of protection by legislature or executive to Americans](https://www.quora.com/Is-the-blessings-of-liberty-more-important-than-the-guarantee-application-of-protection-by-legislature-or-executive-to-Americans)?
 
