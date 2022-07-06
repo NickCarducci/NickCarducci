@@ -1,6 +1,8 @@
 ### Hi there 👋
 
-# All or nothing on guns
+# All or nothing on guns; no one cares about non-citizen residents
+
+## just surplus value over marginal contractor and labor utility preferred leisure price control discount on expiring payment installment loss
 
 # Destroy jobs: [Why does Senator Menendez claim to be an animal rights protector whilst Fauci is according lobotomies to cats in Russia](https://www.quora.com/unanswered/Why-does-Senator-Menendez-claim-to-be-an-animal-rights-protector-whilst-Fauci-is-according-lobotomies-to-cats-in-Russia)? 
 
