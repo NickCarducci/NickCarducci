@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+# All or nothing on guns
+
 # Destroy jobs: [Why does Senator Menendez claim to be an animal rights protector whilst Fauci is according lobotomies to cats in Russia](https://www.quora.com/unanswered/Why-does-Senator-Menendez-claim-to-be-an-animal-rights-protector-whilst-Fauci-is-according-lobotomies-to-cats-in-Russia)? 
 
 [()](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#can-we-replace-the-fda-with-open-source-and-logingov-know-your-customer) . [()](https://github.com/NickCarducci/NickCarducci/blob/main/README.md#is-end-to-end-encryption-not-misleading-with-the-private-key-to-be-on-icloud-servers-that-is-the-fbi-backdoor)   [How do inventions make human life better](https://realecon.quora.com/How-do-inventions-make-human-life-better-1)?   [What are inventions that may create jobs](https://adailyimpeachment.quora.com/What-are-inventions-that-may-create-jobs-1)?
