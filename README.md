@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+[Is it not an error that mortality rates measure against the previous year's population](https://www.quora.com/unanswered/Is-it-not-an-error-that-mortality-rates-measure-against-the-previous-years-population)?
+
 # All or nothing on guns; no one cares about non-citizen residents
 
 ## just surplus value over marginal contractor and labor utility preferred leisure price control discount on expiring payment installment loss
