@@ -1,8 +1,33 @@
 ### Hi there 👋
 
-[Is it not an error that mortality rates measure against the previous year's population](https://www.quora.com/unanswered/Is-it-not-an-error-that-mortality-rates-measure-against-the-previous-years-population)?
+# What is the law for? 🧂🏧↙️⚪️🐿
+
+## Decentralize police not law. Geohash/mo truncatedwholesaletax.com uniform
 
 # All or nothing on guns; no one cares about non-citizen residents
+
+> [Is kilter value not rig rates nor balance counterfeit](https://www.quora.com/unanswered/Is-kilter-value-not-rig-rates-nor-balance-counterfeit)?
+> [Is exclusion not a surplus producer value](https://www.quora.com/unanswered/Is-exclusion-not-a-surplus-producer-value)?
+> [Is surplus producer value not expiring payment installments](https://www.quora.com/unanswered/Is-surplus-producer-value-not-expiring-payment-installments)?
+> [Why is Gordon G. Chang against outsourcing](https://www.quora.com/unanswered/Why-is-Gordon-G-Chang-against-outsourcing)?
+
+[Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
+
+### [Why were bookies prosecuted](https://www.quora.com/unanswered/Why-were-bookies-prosecuted)?
+
+## [Did the Irish or Italian early arrivers do any lending, insurance, or leasing](https://www.quora.com/unanswered/Did-the-Irish-or-Italian-early-arrivers-do-any-lending-insurance-or-leasing)?
+
+[Is it not an error that mortality rates measure against the previous year's population](https://www.quora.com/unanswered/Is-it-not-an-error-that-mortality-rates-measure-against-the-previous-years-population)?
+
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/1v9k4u20zwqfcni/inequality.png?dl=0">](https://fredaccount.stlouisfed.org/dashboard/79987)
+
+## [Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
+
+### [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
+
+# [Would you be deemed a danger to others if you became visibly angry and committed a simple "assault" threat when a utilitarian displaces your job with technology](https://www.quora.com/unanswered/Would-you-be-deemed-a-danger-to-others-if-you-became-visibly-angry-and-committed-a-simple-assault-threat-when-a-utilitarian-displaces-your-job-with-technology)?
+
+[I'm a socialist. I believe John Catsimitidis, a grocer that deals in wholesale transactions, should pay for our police wholly. After saying socialists were originally anti-finance to Dick Morris, he said, "drop dead socialists." What should I do](https://www.quora.com/Im-a-socialist-I-believe-John-Catsimitidis-a-grocer-that-deals-in-wholesale-transactions-should-pay-for-our-police-wholly-After-saying-socialists-were-originally-anti-finance-to-Dick-Morris-he-said-drop-dead)?
 
 ## just surplus value over marginal contractor and labor utility preferred leisure price control discount on expiring payment installment loss
 
@@ -34,9 +59,7 @@ stopping outsourcing for exclusionary fixed cost surplus, kills - the phillips/d
 
 #### [Why not house the homeless by grounds of trespassing to nowhere instead of scapegoating poor economic policy with psychiatric determinism](https://www.quora.com/Why-not-house-the-homeless-by-grounds-of-trespassing-to-nowhere-instead-of-scapegoating-poor-economic-policy-with-psychiatric-determinism)?
 
-### [Why were bookies prosecuted](https://www.quora.com/unanswered/Why-were-bookies-prosecuted)?
-
-## [Did the Irish or Italian early arrivers do any lending, insurance, or leasing](https://www.quora.com/unanswered/Did-the-Irish-or-Italian-early-arrivers-do-any-lending-insurance-or-leasing)?
+_
 
 # [Did prohibition not increase violence](https://www.quora.com/Did-prohibition-not-increase-violence)?
 
@@ -56,7 +79,11 @@ stopping outsourcing for exclusionary fixed cost surplus, kills - the phillips/d
 
 ## [Is end-to-end encryption not misleading with the private key to be on iCloud servers that is the FBI backdoor](https://www.quora.com/unanswered/Is-end-to-end-encryption-not-misleading-with-the-private-key-to-be-on-iCloud-servers-that-is-the-FBI-backdoor)?
 
-[Would providing a license to drug gangs to operate for free provide them with the protection they need to not kill each other](https://www.quora.com/Would-providing-a-license-to-drug-gangs-to-operate-for-free-provide-them-with-the-protection-they-need-to-not-kill-each-other)?
+[Can every workers’ compensation claim be acquitted as a known hazard](https://www.quora.com/Can-every-workers-compensation-claim-be-acquitted-as-a-known-hazard)?
+
+[Do I get tax exemptions for working from home](https://www.quora.com/Do-I-get-tax-exemptions-for-working-from-home)?
+
+[Can you pay yourself through a self-employment account as a bartender to not pay income tax before cost-of-living expenses](https://www.quora.com/Can-you-pay-yourself-through-a-self-employment-account-as-a-bartender-to-not-pay-income-tax-before-cost-of-living-expenses)?
 
 ## [Would 95% of a known population or 100 random selections like time periods be enough distribution to call an election system distributed](https://www.quora.com/unanswered/Would-95-of-a-known-population-or-100-random-selections-like-time-periods-be-enough-distribution-to-call-an-election-system-distributed)?
 
@@ -186,16 +213,6 @@ kondratiev old school socialists destroy value. financial markets and institutio
 > [Is collective action "government" antitrust-communism as Stephen Moore says or is it remediation that has no limitations for non-respondents to otherwise a class action, -suit](https://www.quora.com/unanswered/Is-collective-action-government-antitrust-communism-as-Stephen-Moore-says-or-is-it-remediation-that-has-no-limitations-for-non-respondents-to-otherwise-a-class-action-suit)?
 > [Can businesses choose who can be served without repercussions, if administrative abuse were notwithstanding](https://www.quora.com/unanswered/Can-businesses-choose-who-can-be-served-without-repercussions-if-administrative-abuse-were-notwithstanding)?
 > [Can labor choose what ideas they promote unless it comes down to who they serve on a subjective basis or they work in a factory](https://www.quora.com/unanswered/Can-labor-choose-what-ideas-they-promote-unless-it-comes-down-to-who-they-serve-on-a-subjective-basis-or-they-work-in-a-factory)? [Does Bill O’Reilly really wish to fine airlines after subsidizing them for following guidelines in forcing vaccinations without a jury vote](https://www.quora.com/unanswered/Does-Bill-O-Reilly-really-wish-to-fine-airlines-after-subsidizing-them-for-following-guidelines-in-forcing-vaccinations-without-a-jury-vote)?
-
-[<img align="left" src="https://www.dl.dropboxusercontent.com/s/1v9k4u20zwqfcni/inequality.png?dl=0">](https://fredaccount.stlouisfed.org/dashboard/79987)
-
-## [Nick Carducci's answer to How many dollars are there](https://federalreserve.quora.com/How-many-dollars-are-there-1)? in Federal Reserve
-
-### [Is the tripling of checkable deposits the cause of the 40% increase in homicides over the course of 2020 and 2021 in the U.S.](https://www.quora.com/Is-the-tripling-of-checkable-deposits-the-cause-of-the-40-increase-in-homicides-over-the-course-of-2020-and-2021-in-the-U-S/answer/Nick-Carducci)?
-
-# [Would you be deemed a danger to others if you became visibly angry and committed a simple "assault" threat when a utilitarian displaces your job with technology](https://www.quora.com/unanswered/Would-you-be-deemed-a-danger-to-others-if-you-became-visibly-angry-and-committed-a-simple-assault-threat-when-a-utilitarian-displaces-your-job-with-technology)?
-
-[I'm a socialist. I believe John Catsimitidis, a grocer that deals in wholesale transactions, should pay for our police wholly. After saying socialists were originally anti-finance to Dick Morris, he said, "drop dead socialists." What should I do](https://www.quora.com/Im-a-socialist-I-believe-John-Catsimitidis-a-grocer-that-deals-in-wholesale-transactions-should-pay-for-our-police-wholly-After-saying-socialists-were-originally-anti-finance-to-Dick-Morris-he-said-drop-dead)?
 
 # [Nick Carducci's answer to What is the weakest critique of communism](https://marx.quora.com/What-is-the-weakest-critique-of-communism-1)? in Marx
 
