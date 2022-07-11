@@ -21,7 +21,7 @@ If a subcontractor agrees to a certain scope of requirements, should they return
 
 [Did Trump put us first with tariffs for exclusive fixed costs](https://www.quora.com/unanswered/Did-Trump-put-us-first-with-tariffs-for-exclusive-fixed-costs)?
 
-Is whistleblowing treason an illegal threat as a citizen?
+Is whistleblowing treason an illegal threat as a citizen? Are state rights not unconstitutional because it is not uniform nor tranquil for all classes as in the division of labor?
 
 Is occupy wall street a form of self defense from killer surplus value while the January 6th insurrection was based on disinformation about the importance of a single USB drive?
 
