@@ -5,7 +5,7 @@ No antichrist needed!
 # Truncated Wholesale Tax
 
 take advantage of electronic transfer funds
-jive with $15k/customer/yr reporting threshold
+jive with $15k/customer/yr reporting threshold (damaged by expiring payment installment surplus producer value beyond contractor profit)
 
 How can banks be allowed to operate by donee beneficiary credit instead of transaction fees?
 
@@ -14,6 +14,10 @@ Why do banks expect to get a return on uncollateralized loans?
 If a subcontractor agrees to a certain scope of requirements, should they return the escrow and partial product if they cannot meet the requirements before following the contractor’s future product map?
 
 # What is the law for? 🧂🏧↙️⚪️🐿
+
+Should donee beneficiary expiring payment installments annual income be reverse amortized by cash: debt?
+
+[https://www.dl.dropboxusercontent.com/s/qrlsjq5doig9o9t/screencap%20podcast%20apple.png?dl=0](https://podcasts.apple.com/us/podcast/advanced-microeconomics-the-micro-theory-com-podcast/id1629354788)
 
 priceless
 
