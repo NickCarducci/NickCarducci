@@ -21,7 +21,7 @@ If a subcontractor agrees to a certain scope of requirements, should they return
 
 developer: I have invented and abstracted something
 
-user: my family is starving
+user: my family is starving.. inelastic beyond demand
 
 Should donee beneficiary expiring payment installment annual income be reverse amortized by cash:debt?
 
