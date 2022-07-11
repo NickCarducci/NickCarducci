@@ -19,6 +19,10 @@ If a subcontractor agrees to a certain scope of requirements, should they return
 
 [Did Trump put us first with tariffs for exclusive fixed costs](https://www.quora.com/unanswered/Did-Trump-put-us-first-with-tariffs-for-exclusive-fixed-costs)?
 
+developer: I have invented and abstracted something
+
+user: my family is starving
+
 Should donee beneficiary expiring payment installment annual income be reverse amortized by cash:debt?
 
 [<img align="right" src="https://www.dl.dropboxusercontent.com/s/qrlsjq5doig9o9t/screencap%20podcast%20apple.png?dl=0" alt="Advance Microeconomics podcast">](https://podcasts.apple.com/us/podcast/advanced-microeconomics-the-micro-theory-com-podcast/id1629354788)
