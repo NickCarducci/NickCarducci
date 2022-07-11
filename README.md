@@ -17,7 +17,7 @@ If a subcontractor agrees to a certain scope of requirements, should they return
 
 Should donee beneficiary expiring payment installments annual income be reverse amortized by cash: debt?
 
-[https://www.dl.dropboxusercontent.com/s/qrlsjq5doig9o9t/screencap%20podcast%20apple.png?dl=0](https://podcasts.apple.com/us/podcast/advanced-microeconomics-the-micro-theory-com-podcast/id1629354788)
+[<img src="https://www.dl.dropboxusercontent.com/s/qrlsjq5doig9o9t/screencap%20podcast%20apple.png?dl=0" alt="Advance Microeconomics podcast">](https://podcasts.apple.com/us/podcast/advanced-microeconomics-the-micro-theory-com-podcast/id1629354788)
 
 priceless
 
