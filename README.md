@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury?
+
 No antichrist needed!
 
 <img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0" alt="waluigi">
@@ -18,6 +20,10 @@ If a subcontractor agrees to a certain scope of requirements, should they return
 # What is the law for? 🧂🏧↙️⚪️🐿
 
 [Did Trump put us first with tariffs for exclusive fixed costs](https://www.quora.com/unanswered/Did-Trump-put-us-first-with-tariffs-for-exclusive-fixed-costs)?
+
+Is whistleblowing treason an illegal threat as a citizen?
+
+Is occupy wall street a form of self defense from killer surplus value while the January 6th insurrection was based on disinformation about the importance of a single USB drive?
 
 developer: I have invented and abstracted something
 
