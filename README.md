@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury?
+Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury? Why aren't whistleblowers allowed on the jury?
 
 No antichrist needed!
 
