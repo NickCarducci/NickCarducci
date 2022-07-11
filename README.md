@@ -2,7 +2,8 @@
 
 No antichrist needed!
 
-# Truncated Wholesale Tax
+<img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0" alt="waluigi">
+# [Truncated Wholesale Tax](https://truncatedwholesaletax.com)
 
 take advantage of electronic transfer funds
 jive with $15k/customer/yr reporting threshold (damaged by expiring payment installment surplus producer value beyond contractor profit)
