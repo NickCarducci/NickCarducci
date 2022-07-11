@@ -3,6 +3,7 @@
 No antichrist needed!
 
 <img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0" alt="waluigi">
+
 # [Truncated Wholesale Tax](https://truncatedwholesaletax.com)
 
 take advantage of electronic transfer funds
