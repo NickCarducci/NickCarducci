@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-pharmacology exclusionary monopoly is the scope of congress. riots and invasion requires damages.
+pharmacology exclusionary monopoly is the scope of congress. riots and invasion requires damages. death wishes are legal? certainly at sea. leisure to prefer IS preference shifts.
 
 Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury? Why aren't whistleblowers allowed on the jury?
 
