@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-pharmacology exclusionary monopoly is the scope of congress. riots and invasion requires damages. death wishes are legal? certainly at sea. leisure to prefer IS preference shifts.
+Pharmacology exclusionary monopoly is the scope of congress. Riots and invasion requires damages. death wishes are legal? certainly at sea. [Leisure to prefer IS preference shifts](https://skeptics.stackexchange.com/questions/53551/why-is-microeconomic-supply-and-demands-utility-not-leisure-as-such-preference).
 
 Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury? Why aren't whistleblowers allowed on the jury?
 
