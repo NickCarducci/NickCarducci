@@ -6,6 +6,10 @@ Why are shippers not liable for lost packages? Why are marginal utility without 
 
 The macroeconomic [bureau of economic analysis national accounting tables](https://fred.stlouisfed.org/graph/?g=RFth) in a picture.
 
+Ethics. Wishing death upon people is legal. Constitutional riot but not damages!
+Something in the preamble about kilter value for leisure and ethics.
+"" leisure being whatever you prefer.
+
 No antichrist needed!
 
 <img align="right" src="https://www.dl.dropboxusercontent.com/s/xyv4l163g3bx6tp/walugi%20smol.png?dl=0" alt="waluigi">
