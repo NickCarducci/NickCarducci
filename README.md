@@ -4,6 +4,10 @@
 
 My election tech will need to be funded by taxes first if I own it and it is too broad utility
 
+[How is anonymous voting possible without having to trust the government other than my solution? [closed]](https://security.stackexchange.com/questions/263315/how-is-anonymous-voting-possible-without-having-to-trust-the-government-other-th)
+
+In economics, leisure exchanges for consumption; any producer value left over utility of contractor's profits is by expiring payment installments.
+
 ## Critique is assault
 
 We can have blind auction backdoor, $100k/subsidiary
