@@ -1,5 +1,13 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+## Too broad utility
+
+My election tech will need to be funded by taxes first if I own it and it is too broad utility
+
+## Critique is assault
+
+We can have blind auction backdoor, $100k/subsidiary
+
 Pharmacology exclusionary monopoly is the scope of congress. Riots and invasion requires damages. death wishes are legal? certainly at sea. [Leisure to prefer IS preference shifts](https://skeptics.stackexchange.com/questions/53551/why-is-microeconomic-supply-and-demands-utility-not-leisure-as-such-preference).
 
 Why are shippers not liable for lost packages? Why are marginal utility without surplus value tort reformers not allowed on the jury? Why aren't whistleblowers allowed on the jury?
