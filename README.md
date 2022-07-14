@@ -1,5 +1,9 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+#### [Does 39% of New Jersey hate the government](https://www.quora.com/unanswered/Does-39-of-New-Jersey-hate-the-government)?
+
+> [hate redundant factions](https://politics.stackexchange.com/questions/74243/do-we-have-recent-polling-on-the-matter-of-ending-wall-street)
+
 ## Too broad utility
 
 My election tech will need to be funded by taxes first if I own it and it is too broad utility
