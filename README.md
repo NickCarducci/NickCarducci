@@ -6,6 +6,8 @@
 
 ## Too broad utility
 
+> Unemployment is in the Phillips Curve and the productive as in efficient version the Non-accelerating Inflation Rate of Unemployment (NAIRU) curve which otherwise is marginal utility demand. Every point on the Demand curve, or Total Utility, is book-made by the industry supply and demand curve. So while the ask-bid spread matches q*,p* after sorted negotiations in a blind and honest auction regarding fixed costs and normative preferences amongst substitutive labor-demand of other vertical horizons the individual firm can install payments over time to imbue producer surplus (inelastic and artificial fixed[-startup] costs over Complementary Supply and Demand) to which unemployment deflates instead of inflates as would exist in a competitive labor market.
+
 My election tech will need to be funded by taxes first if I own it and it is too broad utility
 
 [How is anonymous voting possible without having to trust the government other than my solution? [closed]](https://security.stackexchange.com/questions/263315/how-is-anonymous-voting-possible-without-having-to-trust-the-government-other-th)
