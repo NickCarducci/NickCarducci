@@ -4,7 +4,7 @@ Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy W
 
 #### [Does 39% of New Jersey hate the government](https://www.quora.com/unanswered/Does-39-of-New-Jersey-hate-the-government)?
 
-> [hate redundant factions](https://politics.stackexchange.com/questions/74243/do-we-have-recent-polling-on-the-matter-of-ending-wall-street)
+> [hate redundant factions](https://politics.stackexchange.com/questions/74243/do-we-have-recent-polling-on-the-matter-of-ending-wall-street): Approval == Wall Street?
 
 ## Too broad utility
 
