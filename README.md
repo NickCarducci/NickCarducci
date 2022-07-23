@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy Wall Street canvassing](https://igg.me/at/occupywallstreet)
+
 #### [Does 39% of New Jersey hate the government](https://www.quora.com/unanswered/Does-39-of-New-Jersey-hate-the-government)?
 
 > [hate redundant factions](https://politics.stackexchange.com/questions/74243/do-we-have-recent-polling-on-the-matter-of-ending-wall-street)
