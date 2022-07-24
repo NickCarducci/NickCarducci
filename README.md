@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-# It's going to be riotous!
+# 'It's going to be riotous!' ...elastic fixed costs?
 
 Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy Wall Street canvassing](https://igg.me/at/occupywallstreet)
 
