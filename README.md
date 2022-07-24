@@ -8,7 +8,7 @@ Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy W
 
 > [hate redundant factions](https://politics.stackexchange.com/questions/74243/do-we-have-recent-polling-on-the-matter-of-ending-wall-street): Approval == Wall Street?
 
-## Too broad utility. ...for left over value so [complementary](https://complementarysupplydemand.quora.com) (efficient 'misery') substitutive less Phillips (hours inflating)
+## Too broad utility. ...for left over value so [complementary](https://complementarysupplydemand.quora.com) (efficient 'misery') substitutive less Phillips (hours inflating)... propensity flips by inelasticity artificially over demand as true real probability is square..
 
 > Unemployment is in the Phillips Curve and the [productive as in efficient](https://utilityeconomics.quora.com/What-is-unemployment-in-supply-and-demand-1) version the Non-accelerating Inflation Rate of Unemployment (NAIRU) curve which otherwise is marginal utility demand. Every point on the Demand curve, or Total Utility, is book-made by the industry supply and demand curve. So while the ask-bid spread matches q*,p* after sorted negotiations in a blind and honest auction regarding fixed costs and normative preferences amongst substitutive labor-demand of other vertical horizons the individual firm can install payments over time to imbue producer surplus (inelastic and artificial fixed[-startup] costs over Complementary Supply and Demand) to which unemployment deflates instead of inflates as would exist in a competitive labor market.
 
