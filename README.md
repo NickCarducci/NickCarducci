@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt
+bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
 
 # 'It's going to be riotous!' ...elastic fixed costs?
 
