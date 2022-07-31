@@ -2,7 +2,9 @@
 
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
-bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
+bankruptcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
+
+mercantilist seek to maximize exports by importing labor not by surplus value left over effort but depreciating work
 
 [Why would business owners think banning credit will hurt their businesses on net](https://www.quora.com/unanswered/Why-would-business-owners-think-banning-credit-will-hurt-their-businesses-on-net)?
 
