@@ -4,6 +4,8 @@
 
 bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
 
+[Why would business owners think banning credit will hurt their businesses on net](https://www.quora.com/unanswered/Why-would-business-owners-think-banning-credit-will-hurt-their-businesses-on-net)?
+
 # 'It's going to be riotous!' ...elastic fixed costs?
 
 [How can "the election be rigged" if the null confirmation is such an unmeasurable set](https://www.quora.com/How-can-the-election-be-rigged-if-the-null-confirmation-is-such-an-unmeasurable-set)?
