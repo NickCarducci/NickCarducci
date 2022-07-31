@@ -1,12 +1,12 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+[Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
+
 bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
 
 # 'It's going to be riotous!' ...elastic fixed costs?
 
 [How can "the election be rigged" if the null confirmation is such an unmeasurable set](https://www.quora.com/How-can-the-election-be-rigged-if-the-null-confirmation-is-such-an-unmeasurable-set)?
-
-[Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
 Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy Wall Street canvassing](https://igg.me/at/occupywallstreet)
 
