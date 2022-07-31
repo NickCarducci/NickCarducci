@@ -2,7 +2,7 @@
 
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
-bankruptcy how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
+bankruptcy's how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
 
 mercantilist seek to maximize exports by importing labor not by surplus value left over effort but depreciating work
 
