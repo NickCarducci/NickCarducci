@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+bancrupcy how to exercise donee beneficiary AJones 11/12 industry variable doubt
+
 # 'It's going to be riotous!' ...elastic fixed costs?
 
 Building industry-spec debenture + geohash/mo tax prep. Happening now: [Occupy Wall Street canvassing](https://igg.me/at/occupywallstreet)
