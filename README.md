@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+no reasons for price nor velocity and measured preference
+
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
 bankruptcy's how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
