@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+# mahrtalaq means to not rape without surplus
+
 no reasons for price nor velocity and measured preference. If non-citizens aren't to vote because they don't pay taxes, why would they have to if they register as medical or educational institutions where gifts are unlimited or $15k/customer/year for any vertical? [The camps are too expensive so institutions](https://truncatedwholesaletax.com) 
 
 "...perfecting of machinery, made by competition compulsory for each individual manufacturer."
