@@ -22,6 +22,8 @@ I have select quotes from Karl Marx's lifetime babblings that form a crypt dispa
 
 "The executive of the modern STATE is but a committee for managing the common affairs of the whole bourgeoisie."
 
+#### ability needs machinery compel competiton as production to govern by a progressive tax
+
 Are they all living on the same planet as us? Is there something nefarious on that stackexchange, like disinformation to promote or discredit a specific political cause, group or politician? It does not appear to be a good-faith effort to learn more about governments, policies and political processes as defined in the help center.
 
 I feel it is important to imbue for the following quote the idea of elastic fixed costs no more surplus than the inelasticity of demand, as towards free education without paywalls, and the like: "...the mass of propertyless workers – the utterly precarious position of labour – power on a mass scale cut off from capital or from even a limited satisfaction and, therefore, no longer merely temporarily deprived of work itself as a secure source of life."
