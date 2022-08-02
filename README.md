@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-no reasons for price nor velocity and measured preference
+no reasons for price nor velocity and measured preference. If non-citizens aren't to vote because they don't pay taxes, why would they have to if they register as medical or educational institutions where gifts are unlimited or $15k/customer/year for any vertical?
 
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
