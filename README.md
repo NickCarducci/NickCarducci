@@ -22,7 +22,7 @@ I have select quotes from Karl Marx's lifetime babblings that form a crypt dispa
 
 "The executive of the modern STATE is but a committee for managing the common affairs of the whole bourgeoisie."
 
-#### ability needs machinery compel competiton as production to govern by a progressive tax
+#### ability needs machinery compel competiton as production to govern by a [progressive tax](https://nickcarducciforsenate.quora.com/Why-doesnt-America-have-a-public-funded-free-health-system-1)
 
 Are they all living on the same planet as us? Is there something nefarious on that stackexchange, like disinformation to promote or discredit a specific political cause, group or politician? It does not appear to be a good-faith effort to learn more about governments, policies and political processes as defined in the help center.
 
