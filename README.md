@@ -12,6 +12,8 @@ I have select quotes from Karl Marx's lifetime babblings that form a crypt dispa
 
 "The capitalist state serves as the managing committee of the bourgeoisie."
 
+## assault non sexual battery
+
 "Between capitalist and communist society there lies the period of revolutionary transformation of the one to the other. Corresponding to this is also a political transition period in which the state can be nothing but the revolutionary dictatorship of the proletariat. That, in fact, by the word ‘state’ is the government machine, ...separated from society through division of labor, the economic basis of the state..."
 
 "Anarchy reigns in socialized production." (e)
