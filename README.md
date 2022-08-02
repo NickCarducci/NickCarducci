@@ -2,6 +2,44 @@
 
 no reasons for price nor velocity and measured preference. If non-citizens aren't to vote because they don't pay taxes, why would they have to if they register as medical or educational institutions where gifts are unlimited or $15k/customer/year for any vertical? [The camps are too expensive so institutions](https://truncatedwholesaletax.com) 
 
+"...perfecting of machinery, made by competition compulsory for each individual manufacturer."
+
+I have select quotes from Karl Marx's lifetime babblings that form a crypt disparately, unless denoted by (e = Engels):
+
+"Taxes are the economic basis of the government machinery and nothing else."
+
+"The capitalist state serves as the managing committee of the bourgeoisie."
+
+"Between capitalist and communist society there lies the period of revolutionary transformation of the one to the other. Corresponding to this is also a political transition period in which the state can be nothing but the revolutionary dictatorship of the proletariat. That, in fact, by the word ‘state’ is the government machine, ...separated from society through division of labor, the economic basis of the state..."
+
+"Anarchy reigns in socialized production." (e)
+
+"...the law of division of labor that lies at the basis of the division into classes. But this does not prevent this division into classes from being carried out by means of violence and robbery, trickery and fraud. it does not prevent the ruling class, once having the upper hand, from consolidating its power at the expense of the working-class, from turning its social leadership into an intensified exploitation of the masses." (e)
+
+"The executive of the modern STATE is but a committee for managing the common affairs of the whole bourgeoisie."
+
+Are they all living on the same planet as us? Is there something nefarious on that stackexchange, like disinformation to promote or discredit a specific political cause, group or politician? It does not appear to be a good-faith effort to learn more about governments, policies and political processes as defined in the help center.
+
+I feel it is important to imbue for the following quote the idea of elastic fixed costs no more surplus than the inelasticity of demand, as towards free education without paywalls, and the like: "...the mass of propertyless workers – the utterly precarious position of labour – power on a mass scale cut off from capital or from even a limited satisfaction and, therefore, no longer merely temporarily deprived of work itself as a secure source of life."
+
+"The product governs the producers." (e)
+
+"...it comes about that the overwork of some becomes the preliminary condition for the idleness of others." (e)
+
+“The sphere of circulation or commodity exchange, within whose boundaries the sale and purchase of labour-power goes on, is in fact a very Eden of the innate rights of man. It is the exclusive realm of Freedom, Equality, Property and Bentham. Freedom, because both buyer and seller of a commodity, let us say of labour-power, are determined only by their own free will. They contract as free persons, who are equal before the law. Their contract is the final result in which their joint will finds a common legal expression. Equality, because each enters into relation with the other, as with a simple owner of commodities, and they exchange equivalent for equivalent. Property, because each disposes only of what is his own. And Bentham, because each looks only to his own advantage. The only force bringing them together, and putting them into relation with each other, is the selfishness, the gain and the private interest of each. Each pays heed to himself only, and no one worries about the others. And precisely for that reason, either in accordance with the pre-established harmony of things, or under the auspices of an omniscient providence, they all work together to their mutual advantage, for the common weal, and in the common interest.”
+
+Seems as though Marx is the macdaddy to supply and demand calculus (surplus value == producer/consumer surplus) and labor economics to me. For certain instance, here Marx discusses binding an efficient labor market more atomic than the non-accelerating inflation rate of unemployment as like the misery index and not the Phillips curve in which hours inflate for the latter which the industrial class overworks for the idleness of others, by government taxes beyond the machinery or surplus value otherwise as, "[valorization of capital is on my side an excess expenditure of labour-power](https://www.historicalmaterialism.org/blog/labour-contract-das-kapital-from-simple-illusions-to-necessary-appearances)."
+
+"By an unlimited extension of the working day, you may in one day use up a quantity of labour-power greater than I can restore in three. What you gain in labour, I lose in the substance of labour. ... by means of the price you pay for it every day, I must be able to reproduce it every day, thus allowing myself to sell it again. ... That is against our contract and the law of commodity exchange. […] I demand a normal working day because, like every other seller, I demand the value of my commodity." Not so deliriously-utopian, no?
+
+Contractors are labor but for payment installments of surplus value over effort exchanged.
+
+[Socialism: Utopian and Scientific, Part III: Historical Materialism](https://www.marxists.org/archive/marx/works/1880/soc-utop/ch03.htm) (Engels, 1880)
+
+[The German Ideology, Part I: Feuerbach](https://www.marxists.org/archive/marx/works/1845/german-ideology/ch01a.htm#a3) (Marx, 1845)
+
+[Critique of the Gotha Programme](https://www.marxists.org/archive/marx/works/1875/gotha/ch04.htm) (Marx, 1875)
+
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
 bankruptcy's how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev
