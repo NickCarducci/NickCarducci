@@ -50,7 +50,7 @@ Contractors are labor but for payment installments of surplus value over effort 
 
 [Is running as a third party candidate not the only way to win as an anti-finance candidate](https://www.quora.com/unanswered/Is-running-as-a-third-party-candidate-not-the-only-way-to-win-as-an-anti-finance-candidate)?
 
-bankruptcy's how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev - If you cannot desist you must acquit. Liability punitive damages. Joke that then one must look into
+bankruptcy's how to exercise donee beneficiary AJones 11/12 industry variable doubt - commie.dev - If you cannot desist you must acquit. Liability punitive damages. Joke that then [one](https://truncatedproductiontax.quora.com) must [look into](https://generalmaintenanceunit.quora.com). Is GDP not best described as personal productivity, government deficit, and employee benefits?
 
 mercantilist seek to maximize exports by importing labor not by surplus value left over effort but depreciating work
 
