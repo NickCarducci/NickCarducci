@@ -2,6 +2,8 @@
 
 # commERCodities, no cap; overtime change order implied
 
+#### [negotiated](https://nonvoters.quora.com/Services-merchants-etc-https-www-quora-com-What-are-the-key-features-of-the-newly-passed-Climate-Healthcare-and-Tax) new
+
 > Depreciated capital deprecated commodity
 
 Money is the cup overflowing in supply and demand, price changes and velocity is the y.
