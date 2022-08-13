@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+# commERCodities, no cap; overtime change order implied
+
 > Depreciated capital deprecated commodity
 
 Money is the cup overflowing in supply and demand, price changes and velocity is the y.
