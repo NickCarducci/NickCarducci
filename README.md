@@ -4,7 +4,7 @@
 
 Does Dick Morris think tips do not have to be taxed?
 Is having to pay taxes on tips 'tyranny' that people shouldn't have to pay?
-Why are tips nor billed services not gifts yet discounted or damaged sales are?
+~~Why are tips nor billed services not gifts yet discounted or damaged sales are?~~ Why are tips nor billed services not gifts yet discounted and/or damaged sales of goods are tax-exempt as such? Is overtime-implied change order not the very definition of fraud?
 
 # commERCodities, no cap; overtime change order implied
 
