@@ -1,5 +1,11 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+## Is the capitalist manifesto by Robert Kiyosaki about capital beyond established or earned commerce?
+
+Does Dick Morris think tips do not have to be taxed?
+Is having to pay taxes on tips 'tyranny' that people shouldn't have to pay?
+Why are tips nor billed services not gifts yet discounted or damaged sales are?
+
 # commERCodities, no cap; overtime change order implied
 
 #### [negotiated](https://nonvoters.quora.com/Services-merchants-etc-https-www-quora-com-What-are-the-key-features-of-the-newly-passed-Climate-Healthcare-and-Tax) new
