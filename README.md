@@ -1,8 +1,12 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+[Why is Alaska forcing voters to vote for multiple political candidates](https://www.quora.com/Why-is-Alaska-forcing-voters-to-vote-for-multiple-political-candidates)?
+
 #### What would happen if wealth was distributed more equally? The labor market constantly becomes efficient towards a constant coefficience. A secondary affectation is but for surplus-value for a certain capital larger than before even in case the total amount of their wages should increase, absurdly.
 
 Sexual abuse happens because of schools we trade weekend shooters and [unlicensed pharmacy](https://saverparty.xyz)
+
+[<img align="right" src="https://www.dropbox.com/s/umb73bfsn0bl3in/voting%20methods.jpeg?dl=0" alt="info sec">](https://security.stackexchange.com/questions/263758/how-can-tor-be-modified-to-circumvent-traffic-correlation-attacks-for-voting-and)
 
 You want to tax capital gains (before sold, even after or deferred before investment in 401k) instead of suspend inflation? We used to have no inflation before the federal reserve, and no ‘business cycle’ with the old means of production and of exchange. Saltbank.org
 
