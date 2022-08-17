@@ -4,7 +4,7 @@
 
 #### What would happen if wealth was distributed more equally? The labor market constantly becomes efficient towards a constant coefficience. A secondary affectation is but for surplus-value for a certain capital larger than before even in case the total amount of their wages should increase, absurdly.
 
-Sexual abuse happens because of schools we trade weekend shooters and [unlicensed pharmacy](https://saverparty.xyz)
+Sexual abuse happens because of schools we trade weekend shooters and [unlicensed pharmacy](https://saverparty.xyz). [Is the silence from famous stoners on the 1968 Gun Control Act ban on owning guns proof of non-violence](https://www.quora.com/unanswered/Is-the-silence-from-famous-stoners-on-the-1968-Gun-Control-Act-ban-on-owning-guns-proof-of-non-violence)?
 
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/umb73bfsn0bl3in/voting%20methods.jpeg?dl=0" alt="info sec voting methods">](https://security.stackexchange.com/questions/263758/how-can-tor-be-modified-to-circumvent-traffic-correlation-attacks-for-voting-and)
 
