@@ -26,7 +26,7 @@ Is having to pay taxes on tips 'tyranny' that people shouldn't have to pay?
 
 > Depreciated capital deprecated commodity
 
-Money is the cup overflowing in supply and demand, price changes and velocity is the y.
+Money is the cup overflowing in supply and demand, [price changes and velocity](https://realvelocity.asia) is the y.
 and leisure exchanges the rate of consumption
 
 tw: Flog borrowers loitering, greenfieild pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
