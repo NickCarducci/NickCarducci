@@ -6,7 +6,7 @@
 
 Sexual abuse happens because of schools we trade weekend shooters and [unlicensed pharmacy](https://saverparty.xyz)
 
-[<img align="right" src="https://www.dropbox.com/s/umb73bfsn0bl3in/voting%20methods.jpeg?dl=0" alt="info sec">](https://security.stackexchange.com/questions/263758/how-can-tor-be-modified-to-circumvent-traffic-correlation-attacks-for-voting-and)
+[<img align="right" src="https://www.dl.dropboxusercontent.com/s/umb73bfsn0bl3in/voting%20methods.jpeg?dl=0" alt="info sec voting methods">](https://security.stackexchange.com/questions/263758/how-can-tor-be-modified-to-circumvent-traffic-correlation-attacks-for-voting-and)
 
 You want to tax capital gains (before sold, even after or deferred before investment in 401k) instead of suspend inflation? We used to have no inflation before the federal reserve, and no ‘business cycle’ with the old means of production and of exchange. Saltbank.org
 
