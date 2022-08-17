@@ -1,5 +1,8 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+# strategic is cheap competition
+# plundering is [inelastic firesale so](https://saverparty.quora.com/Are-trade-deficits-not-merely-nominal)
+
 [Is SAT to grade measure by gender not proof of misandry](https://www.quora.com/unanswered/Is-the-SAT-to-grade-measure-by-gender-not-proof-of-misandry)?
 
 [Why is Alaska forcing voters to vote for multiple political candidates](https://www.quora.com/Why-is-Alaska-forcing-voters-to-vote-for-multiple-political-candidates)? [Will votes shift in ranked choice voting if they do not exist](https://www.quora.com/unanswered/Will-votes-shift-in-ranked-choice-voting-if-they-do-not-exist)? [Help. I’m an advocate (not a lawyer nor with a specific collective client) with a series of questions for microbiology professionals about virus. I have yet to have a satisfactory answer to dissuade my doubts about why bacterium endocytosis is done in a lab but virus is ‘adapted’](https://www.reddit.com/r/biology/comments/wpxhde/help_im_an_advocate_not_a_lawyer_nor_with_a/)? [How Many Americans Believe In Conspiracy Theories? 7% believe Bill Gates made virus in a lab, albeit never a scientist has done it. One percent away from acquittal for any desist and defamation case.](https://www.reddit.com/r/conspiracytheories/comments/wm88m9/how_many_americans_believe_in_conspiracy_theories/)
