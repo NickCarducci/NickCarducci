@@ -1,6 +1,6 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-# strategic is cheap competition
+# [strategic](https://www.reddit.com/r/AskEconomics/comments/wgdwdc/comment/iizu4am/) is cheap competition
 # plundering is [inelastic firesale so](https://saverparty.quora.com/Are-trade-deficits-not-merely-nominal)
 
 [Is SAT to grade measure by gender not proof of misandry](https://www.quora.com/unanswered/Is-the-SAT-to-grade-measure-by-gender-not-proof-of-misandry)?
