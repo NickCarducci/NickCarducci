@@ -1,5 +1,11 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+Sexual abuse happens because of schools we trade weekend shooters and unlicensed pharmacy
+
+You want to tax capital gains (before sold, even after or deferred before investment in 401k) instead of suspend inflation? We used to have no inflation before the federal reserve, and no ‘business cycle’ with the old means of production and of exchange. Saltbank.org
+
+# Does capitalism not use rent and loans instead of properly exchange labor?
+
 ## Is the capitalist manifesto by Robert Kiyosaki about capital beyond established or earned commerce?
 
 Does Dick Morris think tips do not have to be taxed?
