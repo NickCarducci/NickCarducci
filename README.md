@@ -44,7 +44,7 @@ Do all Abrahamic religions really believe witchcraft works if they were allowed 
 
 Aren’t polytheism and the Abrahamic religions insanity?
 
-Did you also lose your Abrahamic religion when you found out slaughter cleanses sin?
+Did you also lose your Abrahamic religion when you found out slaughter cleanses [sin](https://www.quora.com/unanswered/Why-is-free-porn-stood-by-internet-cookies)?
 
 tw: Flog borrowers loitering, [greenfield](https://www.chabad.org/library/article_cdo/aid/960634/jewish/Naarah-Betulah-Chapter-One.htm) pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
 
