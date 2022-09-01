@@ -34,7 +34,7 @@ Is having to pay taxes on tips 'tyranny' that people shouldn't have to pay?
 Money is the cup overflowing in supply and demand, [price changes and velocity](https://realvelocity.asia) is the y.
 and leisure exchanges the rate of consumption
 
-tw: Flog borrowers loitering, greenfield pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
+tw: Flog borrowers loitering, [greenfield](https://www.chabad.org/library/article_cdo/aid/960634/jewish/Naarah-Betulah-Chapter-One.htm) pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
 
 # If Islam promises virgins, is marriage not because of male depravity under polytheism, much less an ethical thing?
 
