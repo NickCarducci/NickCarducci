@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
+Wasn’t NATO and the Cold War because of commodity money tax?
+
 # [strategic](https://www.reddit.com/r/AskEconomics/comments/wgdwdc/comment/iizu4am/) is cheap competition [save america](https://draintheswamp.quora.com/How-does-preventing-factory-jobs-from-being-replaced-save-money), open the [borders](https://asyluminportugal.quora.com)
 # plundering is [inelastic firesale so](https://saverparty.quora.com/Are-trade-deficits-not-merely-nominal)
 
