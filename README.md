@@ -34,9 +34,11 @@ Is having to pay taxes on tips 'tyranny' that people shouldn't have to pay?
 Money is the cup overflowing in supply and demand, [price changes and velocity](https://realvelocity.asia) is the y.
 and leisure exchanges the rate of consumption
 
-tw: Flog borrowers loitering, greenfieild pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
+tw: Flog borrowers loitering, greenfield pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
 
-# mahrtalaq means to [not rape](https://www.islamawareness.net/Marriage/Dowry/dowry_article001.html) - without surplusmercantilism
+# If Islam promises virgins, is marriage not because of male depravity under polytheism, much less an ethical thing?
+
+## mahrtalaq means to [not rape](https://www.islamawareness.net/Marriage/Dowry/dowry_article001.html) - without surplusmercantilism
 
 no reasons for price nor velocity and measured preference. If non-citizens aren't to vote because they don't pay taxes, why would they have to if they register as medical or educational institutions where gifts are unlimited or $15k/customer/year for any vertical? [The camps are too expensive so institutions](https://truncatedwholesaletax.com) 
 
