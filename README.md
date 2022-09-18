@@ -10,7 +10,8 @@ Wasn’t NATO and the Cold War because of [commodity](https://www.quora.com/unan
 
 [Why is Alaska forcing voters to vote for multiple political candidates](https://www.quora.com/Why-is-Alaska-forcing-voters-to-vote-for-multiple-political-candidates)? [Will votes shift in ranked choice voting if they do not exist](https://www.quora.com/unanswered/Will-votes-shift-in-ranked-choice-voting-if-they-do-not-exist)? [Help. I’m an advocate (not a lawyer nor with a specific collective client) with a series of questions for microbiology professionals about virus. I have yet to have a satisfactory answer to dissuade my doubts about why bacterium endocytosis is done in a lab but virus is ‘adapted’](https://www.reddit.com/r/biology/comments/wpxhde/help_im_an_advocate_not_a_lawyer_nor_with_a/)? [How Many Americans Believe In Conspiracy Theories? 7% believe Bill Gates made virus in a lab, albeit never a scientist has done it. One percent away from acquittal for any desist and defamation case.](https://www.reddit.com/r/conspiracytheories/comments/wm88m9/how_many_americans_believe_in_conspiracy_theories/)
 
-# Marx is [dead (latches)](https://www.quora.com/Isn-t-misrepresenting-Karl-Marx-on-the-socialism-of-capital-capitalism-akin-to-raping-his-carcass) [commie.dev](https://commie.dev) [realecon.quora.com](https://reddit.com/r/realeconomics)
+# Marx is [dead (latches)](https://www.quora.com/Isn-t-misrepresenting-Karl-Marx-on-the-socialism-of-capital-capitalism-akin-to-raping-his-carcass) [commie.dev](https://commie.dev) [realecon.quora.com](https://reddit.com/r/realeconomics). Isn't the borrower the instigator of a natural rate increase?
+
 
 #### What would happen if wealth was distributed more equally? The labor market constantly becomes efficient towards a constant coefficience. A secondary affectation is but for surplus-value for a certain capital larger than before even in case the total amount of their wages should increase, absurdly.
 
