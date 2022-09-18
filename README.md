@@ -1,7 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
 Wasn’t NATO and the Cold War because of [commodity](https://www.quora.com/unanswered/Isn-t-barter-accomplished-with-commodity-money) money tax?
-> Are Karl Marx and John M. Keynes not diametrically opposed? Isn't the IS-LM Hicks-Keynes model for credit? Isn't Keynes and barter dichotomous? Isn’t barter accomplished with commodity money? Isn’t the social capital that Karl Marx wants to ban specifically debt, rent, and insurance? Are Democrats or Marxists going to ban the use of debt?
+> Are Karl Marx [and John M. Keynes not diametrically opposed? Isn't the IS-LM Hicks-Keynes model for credit](https://saverparty.quora.com/Where-did-Keynes-get-it-wrong-1)? Isn't Keynes and barter dichotomous? Isn’t barter accomplished with commodity money? Isn’t the social capital that Karl Marx wants to ban specifically debt, rent, and insurance? Are Democrats or Marxists going to ban the use of debt?
 
 # [strategic](https://www.reddit.com/r/AskEconomics/comments/wgdwdc/comment/iizu4am/) is cheap competition [save america](https://draintheswamp.quora.com/How-does-preventing-factory-jobs-from-being-replaced-save-money), open the [borders](https://asyluminportugal.quora.com)
 # plundering is [inelastic firesale so](https://saverparty.quora.com/Are-trade-deficits-not-merely-nominal)
