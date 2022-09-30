@@ -1,7 +1,5 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋
 
-# [hibit.cc](https://hibit.cc)
-
 Wasn’t NATO and the Cold War because of [commodity](https://www.quora.com/unanswered/Isn-t-barter-accomplished-with-commodity-money) money tax?
 > Are Karl Marx [and John M. Keynes not diametrically opposed? Isn't the IS-LM Hicks-Keynes model for credit](https://saverparty.quora.com/Where-did-Keynes-get-it-wrong-1)? Isn't Keynes and barter dichotomous? Isn’t barter accomplished with commodity money? Isn’t the social capital that Karl Marx wants to ban specifically debt, rent, and insurance? Are Democrats or Marxists going to ban the use of debt?
 
