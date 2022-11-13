@@ -46,7 +46,17 @@ Do all Abrahamic religions really believe witchcraft works if they were allowed 
 
 Aren’t polytheism and the Abrahamic religions insanity?
 
+> In the absence of Moses, his people made from their ˹golden˺ jewellery an idol of a calf that made a lowing sound. Did they not see that it could neither speak to them nor ˹even˺ guide them to the ˹Right˺ Path? Still they took it as a god and were wrongdoers. (7:148)
+
 Did you also lose your Abrahamic religion when you found out slaughter cleanses [sin](https://www.quora.com/unanswered/Why-is-free-porn-stood-by-internet-cookies)?
+
+Hey [gang](https://www.reddit.com/r/islam/comments/ynk1l2/animal_sacrifice/). How do I reconcile these [two sunnah](https://reddit.com/r/hadithes)? This isn’t an open-ended abrogation.
+
+> Forbidden to you are carrion, blood, and swine; what is slaughtered in the name of any other than Allah; what is killed by strangling, beating, a fall, or by being gored to death; what is partly eaten by a predator unless you slaughter it; and what is sacrificed on altars. (5:3)
+
+> We have made sacrificial camels ˹and cattle˺ among the symbols of Allah, in which there is ˹much˺ good for you. So pronounce the Name of Allah over them when they are lined up ˹for sacrifice˺. Once they have fallen ˹lifeless˺ on their sides, you may eat from their meat, and feed the needy—those who do not beg, and those who do. In this way We have subjected these ˹animals˺ to you so that you may be grateful. (22:36)
+
+(1) If the rich do not beg, should they be sacrificing animals at the altar? (2) surely bloodletting is no different than goring?
 
 tw: Flog borrowers loitering, [greenfield](https://www.chabad.org/library/article_cdo/aid/960634/jewish/Naarah-Betulah-Chapter-One.htm) pay daddy -> paydayt.com ... idolotry non-decadency punishment less prophet
 
