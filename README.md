@@ -56,6 +56,19 @@ tw: Flog borrowers loitering, [greenfield](https://www.chabad.org/library/articl
 
 no reasons for price nor velocity and measured preference. If non-citizens aren't to vote because they don't pay taxes, why would they have to if they register as medical or educational institutions where gifts are unlimited or $15k/customer/year for any vertical? [The camps are too expensive so institutions](https://truncatedwholesaletax.com) 
 
+I cannot help child marriage, inheritance, nor polygamy halal to Hadith at this point, but for binary-divorce:
+
+> O Prophet! Say to your wives, "If you desire the
+life of this world and its luxury, then come, I will
+give you a "suitable' compensation "for divorce'
+and let you go graciously. (33:28)
+
+> O’Prophet, tell your wives and your daughters and the women of the believers to draw their cloaks close round them (when they go abroad). That will be better, so that they may be recognised and not annoyed. Allah is ever Forgiving, Merciful. (Quran 33:59)
+
+## [commie.dev/banks](https://www.quora.com/unanswered/In-Islam-isn-t-equal-measure-in-terms-of-stock-What-is-the-measure-of-economics-in-Islam-How-can-finance-with-expiry-happen-in-Islamic-banking)
+
+> ˹Remember˺ when the disbelievers had filled their hearts with pride—the pride of ˹pre-Islamic˺ ignorance—then Allah sent down His serenity upon His Messenger and the believers, inspiring them to uphold the declaration of faith, for they were better entitled and more worthy of it. And Allah has ˹perfect˺ knowledge of all things. (48:26)
+
 "...perfecting of machinery, made by competition compulsory for each individual manufacturer."
 
 I have select quotes from Karl Marx's lifetime babblings that form a crypt disparately, unless denoted by (e = Engels):
