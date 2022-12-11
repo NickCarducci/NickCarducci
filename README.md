@@ -2,7 +2,7 @@
 
 ## Does an independent republic mean [geohash spoof tax](https://truncatedwholesaletax.com/sign)?
 
-nick@vaults.biz - without the state, outlet malls would pick up the tab. Doesn’t Twitter abuse free content? Isn’t the free content the very reason why website forums cannot censor without court-ordered desist orders? Doesn’t public property under communism imply targeting the margins of private capital networks?
+> nick@vaults.biz - without the state, outlet malls would [pick up the tab](https://thetax.party). **Doesn’t Twitter abuse free content?** *Isn’t the free content the very reason why website forums cannot censor without [court-ordered](https://courttechnology.quora.com) desist orders?* Doesn’t public property under [communism](https://commie.dev/banks) imply targeting the margins of private capital networks?
 
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/j7ciu8pfcv0rx22/ethereum%20magicians.png?dl=0" alt="nonce minter boy">](https://ethereum-magicians.org/u/vaumoney/summary)
 
