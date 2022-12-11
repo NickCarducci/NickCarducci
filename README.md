@@ -1,5 +1,7 @@
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋 https://www.reddit.com/r/realeconomics/comments/zhy3r1/why_is_confidence_in_american_banks_at_27_in_2022/
 
+nick@vaults.biz - without the state, outlet malls would pick up the tab. Doesn’t Twitter abuse free content? Isn’t the free content the very reason why website forums cannot censor without court-ordered desist orders? Doesn’t public property under communism imply targeting the margins of private capital networks?
+
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/j7ciu8pfcv0rx22/ethereum%20magicians.png?dl=0" alt="nonce minter boy">](https://ethereum-magicians.org/u/vaumoney/summary)
 
 Wasn’t NATO and the Cold War because of [commodity](https://www.quora.com/unanswered/Isn-t-barter-accomplished-with-commodity-money) money tax?
