@@ -1,4 +1,4 @@
-[<img align="left" src="https://www.dl.dropboxusercontent.com/s/eauftjactpq8rnz/me.png?dl=0" alt="nonce minter boy">](https://ethereum-magicians.org/u/vaumoney/summary)
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/eauftjactpq8rnz/me.png?dl=0" alt="petition 2024nj.com/carducci">](https://vau.money/docs)
 
 Add limited partners (Merchant Tax Preparatory Developer at Vaumoney)
 Is making-partnership taxed by account in proportion to size?
