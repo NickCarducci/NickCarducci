@@ -1,3 +1,11 @@
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/eauftjactpq8rnz/me.png?dl=0" alt="nonce minter boy">](https://ethereum-magicians.org/u/vaumoney/summary)
+
+Add limited partners (Merchant Tax Preparatory Developer at Vaumoney)
+Is making-partnership taxed by account in proportion to size?
+Are you in debt to your non-charitable children? Before someone goes into business, should they name familial limited partners?
+
+> If gift tax is imposed, it is calculated on the fair market value (FMV) of the gifted property less the amount of debt from which the donor is relieved. (Albert B. Ellentuck, Esq., Gifts of Partnership Interests, The Tax Advisor, April 1, 2016)
+
 ### [Hi](https://stackexchange.com/users/16219355/nick-carducci) there 👋 https://www.reddit.com/r/realeconomics/comments/zhy3r1/why_is_confidence_in_american_banks_at_27_in_2022/
 
 ## Does an independent republic mean [geohash spoof tax](https://truncatedwholesaletax.com/sign)?
