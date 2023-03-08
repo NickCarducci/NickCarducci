@@ -1,5 +1,8 @@
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/eauftjactpq8rnz/me.png?dl=0" alt="petition 2024nj.com/carducci">](https://vau.money/docs)
 
+# Article 1 Section 8 recession-annualized, -interim deflation tax- hike
+## Immediate 2:282 democracy
+
 Add limited partners (Merchant Tax Preparatory Developer at Vaumoney)
 Is making-partnership taxed by account in proportion to size?
 Are you in debt to your non-charitable children? Before someone goes into business, should they name familial limited partners?
