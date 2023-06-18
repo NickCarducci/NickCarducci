@@ -1,4 +1,4 @@
-[<img align="left" src="https://www.dropbox.com/s/fbkk6ktdghw39nw/Carducci%20for%20Senate.png?dl=0" alt="petition 2024nj.com/carducci or change.org/nickcarducci">](https://vau.money/docs)
+[<img align="left" src="https://www.dl.dropboxusercontent.com/s/fbkk6ktdghw39nw/Carducci%20for%20Senate.png?dl=0" alt="petition 2024nj.com/carducci or change.org/nickcarducci">](https://vau.money/docs)
 
 # Article 1 Section 8 recession-annualized, -interim deflation tax- hike (micro-theory.podbean.com)
 ## Immediate 2:282 democracy (marginalism.Uk)
