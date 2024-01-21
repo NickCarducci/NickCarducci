@@ -7,7 +7,7 @@ hibit.cc
 [<img align="left" src="https://www.dl.dropboxusercontent.com/s/fbkk6ktdghw39nw/Carducci%20for%20Senate.png?dl=0" alt="petition 2024nj.com/carducci or change.org/nickcarducci">](https://vau.money/docs)
 
 # Article 1 Section 8 recession-annualized, -interim deflation tax- hike (micro-theory.podbean.com)
-## Immediate 2:282 democracy (marginalism.Uk)
+## Immediate 2:282 democracy
 
 Add limited partners (Merchant Tax Preparatory Developer at Vaumoney)
 Is making-partnership taxed by account in proportion to size?
