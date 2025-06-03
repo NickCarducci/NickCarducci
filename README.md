@@ -58,4 +58,4 @@ I'm not just building software—I’m building infrastructure for **trust**, **
 
 🛠 *Open to collaboration on public-interest software, New Commons projects, and real-time civic data platforms.*
 
-[Open-source contribution](https://github.com/emscripten-core/emscripten/pull/18748)
+[Open-source contribution (emscripten)](https://github.com/emscripten-core/emscripten/pull/18748)
