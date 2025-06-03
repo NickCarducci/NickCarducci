@@ -1,5 +1,3 @@
-[Open-source contribution](https://github.com/emscripten-core/emscripten/pull/18748)
-
 # 👋 Hi, I’m Nicholas Matthew Carducci
 
 I'm a civic technologist, independent U.S. Senate candidate (NJ 2026), and graduate software engineering student at Monmouth University. I’m passionate about building public-interest technology and data commons for democratic participation, transparency, and justice.
@@ -59,3 +57,5 @@ I'm not just building software—I’m building infrastructure for **trust**, **
 ---
 
 🛠 *Open to collaboration on public-interest software, New Commons projects, and real-time civic data platforms.*
+
+[Open-source contribution](https://github.com/emscripten-core/emscripten/pull/18748)
